@@ -1,0 +1,46 @@
+(REFORMADO, P.O. 5 DE AGOSTO DE 2019)
+ARTICULO 154 BIS. Las comparecencias de las o los funcionarios públicos ante los diputados son un ejercicio de diálogo, para demandar explicaciones, justificar lo realizado, precisar datos, argumentar posiciones, aclarar equívocos, analizar la situación que guarda la institución pública a su cargo, y rendir cuentas; los legisladores tienen plena libertad de formular, preguntas, dudas, interpelaciones, y requerimientos de información, sobre temas concretos; la política gubernamental; o de cualquier otro asunto de interés público y, en general, de la materia que se trate.
+Las comparecencias, según su modalidad, se desarrollarán conforme a las siguientes bases:
+A. Las que se desarrollan en el Pleno:
+I. Se inicia cuando se cumple con el Quórum legal;
+II. El Diputado o Diputada que presida la Directiva dará a conocer a los legisladores y a los funcionarios públicos la dinámica de la comparecencia, para lo cual expresará la razón y motivo de la misma;
+III. El o la Diputada secretaria de la Directiva, tomará la protesta de ley al o la funcionaria compareciente, para que se conduzca con verdad, advirtiéndole de las penas en que incurren quienes lo hagan con falsedad;
+IV. Para dar a conocer al Poder Legislativo la situación que guarda la institución pública y rendir cuentas de los temas relevantes en el ejercicio de su encargo, el o la compareciente podrá hacer uso de la voz por un tiempo improrrogable de quince minutos;
+V. La o el Presidente de la Directiva instruirá a la o el Secretario a inscribir a los diputados que vayan a formular las preguntas, dudas, interpelaciones o requerimientos de información;
+VI. El uso de la palabra será concedido por Grupo Parlamentario o por Representación Parlamentaria.
+Cada Grupo o Representación Parlamentaria, deberá señalar el orden de intervención de sus legisladores.
+La Directiva concederá el uso de la voz en el orden acordado por los grupos o representaciones parlamentarias, y se harán las rondas necesarias para que los legisladores interesados puedan intervenir.
+Sin que ello obligue a todos los grupos o representaciones parlamentarias, a participar en todas las rondas.
+El orden de intervención será concedido intercalando a los grupos y representaciones parlamentarias.
+Las intervenciones de los legisladores se harán con un tiempo máximo de cinco minutos, mismo que será improrrogable;
+VII. La o el funcionario compareciente, dará respuesta inmediata a los cuestionamientos formulados por los diputados.
+Dicha intervención no podrá exceder de un tiempo de diez minutos; de ser necesario, podrá solicitar la duplicidad del tiempo;
+VIII. Una vez que la o el compareciente dé respuesta a los cuestionamientos de los legisladores, los mismos podrán hacer uso de su derecho de réplica hasta por tres minutos a fin de, aclarar conceptos, interrogar, o solicitar información complementaria sobre la materia objeto de la comparecencia;
+IX. La o el compareciente tendrá un tiempo máximo de hasta diez minutos para la contrarréplica;
+X. Si a juicio de la o el presidente, o a solicitud de la o el diputado, la o el compareciente no respondió de manera concisa o clara; se le concederá nuevamente el uso de la palabra hasta por tres minutos a la o el legislador que formuló la pregunta o interpelación, a fin de señalar las omisiones de la respuesta.
+La o el compareciente tendrá el mismo tiempo que se le concedió a la o el legislador, para dar respuesta;
+XI. Los diputados podrán intervenir cuantas veces sean necesarias, siempre con previo acuerdo entre los integrantes de su respectivo grupo parlamentario;
+XII. De ninguna manera la presidencia de la Directiva permitirá que exista diálogo directo entre la o el compareciente y los legisladores, y
+XIII. La comparecencia se declara concluida una vez que se considere agotada la materia de la misma, a propuesta del Presidente de la Directiva y si así lo decide la mayoría de los presentes.
+De toda comparecencia se elaborará acta, y su respectiva versión videográfica, para constancia.
+B. Las que se desarrollan en las comisiones, tratándose de titulares de secretarías de Estado; directores generales; o directores de área:
+I. Las comparecencias que se realicen en las comisiones, podrán ser de comisión única o, en comisiones unidas.
+En los casos en que se realizan de comisiones unidas, moderará la comparecencia el presidente de la Comisión que guarde mayor relación con la rama o materia de la o el funcionario público citado; y la o el secretario, será quien presida la otra Comisión que convoca;
+II. Quienes presidan las comisiones convocantes invitarán a sus integrantes, con los requisitos establecidos para las reuniones ordinarias;
+III. La Junta de Coordinación Política acordará cuáles funcionarios públicos serán citados en fecha y hora que se señale para tal efecto; éstos deben ser notificados, a través de su superior jerárquico, por lo menos con cuarenta y ocho horas de anticipación, expresándose claramente el objetivo de las mismas;
+IV. Los funcionarios públicos deberán asistir personalmente; podrán ser apoyados por los asesores que considere convenientes, sin que éstos puedan hacer uso de la voz en la comparecencia. Sólo será citado un funcionario público por comparecencia, y podrá haber hasta dos comparecencias por día;
+V. Los funcionarios públicos citados, por una sola ocasión podrán solicitar el diferimiento de la fecha y hora para su presentación, siempre y cuando lo hagan del conocimiento de la Legislatura, por escrito y dentro de las veinte cuatro horas anteriores a la comparecencia; fundarán y motivarán las causas del impedimento;
+VI. Las comparecencias serán públicas y podrán participar todos los diputados que lo deseen.
+Las comparecencias deben realizarse con respeto y libertad, sin que ningún legislador o legisladora, incluso quienes presidan la comparecencia, pueda censurar, descalificar o restringir la expresión de otros, salvo que se haya agotado el tiempo convenido para cada intervención;
+VII. La o el Presidente de la Comisión que modera, dará a conocer la dinámica de la comparecencia a las o los funcionarios públicos, para lo cual expresará la razón y motivo de la misma;
+VIII. El Presidente de la Comisión que modera instruirá al Secretario inscriba a los diputados que vayan a formular preguntas, dudas, interpelaciones, o requerimientos de información; registro que determinará el orden en que ejercerán ese derecho;
+IX. La o el Secretario de la comisión protestará al compareciente para que se conduzca con verdad, advirtiéndole de las penas en que incurren aquéllos que lo hagan con falsedad;
+X. Para dar a conocer al Poder Legislativo la situación que guarda la administración pública y rendir cuentas de los temas relevantes en el ejercicio de su encargo, la o el compareciente podrá hacer uso de la voz por un tiempo de hasta diez minutos. A solicitud de la o el compareciente, y previa aprobación de la mayoría de los diputados de la comisión que modera, podrá continuar con la palabra por un tiempo de cinco minutos, siempre que la situación lo amerite. Lo anterior no aplicará en los casos en los que las comparecencias sean con motivo de la glosa del informe de Gobierno que rinda el titular del Poder Ejecutivo del Estado;
+XI. Los diputados que hagan uso de la voz podrán intervenir por un tiempo máximo de cinco minutos; de exceder el tiempo señalado, el Presidente de la Comisión lo exhortará para que concluya;
+XII. El funcionario público compareciente debe dar respuesta inmediata a cada cuestionamiento formulado individualmente por los diputados, en el orden en el que se hayan inscrito, y no en forma global; responderá en un tiempo de tres minutos por cada pregunta. En caso de que requiera mayor tiempo para responder, podrá solicitar la duplicidad del término señalado;
+XIII. Una vez que el funcionario público haya dado respuesta al cuestionamiento de una o un legislador, la o el mismo diputado podrán hacer uso de su derecho de réplica hasta por tres minutos, a fin de, aclarar conceptos, interrogar, o solicitar información complementaria sobre la materia objeto de la comparecencia. El compareciente para la contrarréplica contarán con tiempo de hasta tres minutos;
+XIV. Los diputados que así lo deseen podrán intervenir de nueva cuenta, para lo cual solicitarán el uso de la palabra al Secretario de la comisión a efecto ser inscritos, contarán con el tiempo señalado en la fracción XI de este apartado, y
+XV. La comparecencia se declara concluida una vez que se considere agotada la materia de la misma, a propuesta del Diputado o Diputada que preside, y si así lo decide la mayoría de los integrantes de la Comisión que modera.
+Ambas modalidades deberán ser públicas, facilitando el acceso de las personas a los recintos legislativos; así mismo, cuando las condiciones lo permitan, deberán transmitirse en los medios digitales propios del Congreso.
+De toda comparecencia, la Comisión que modera elaborará Minuta; y la versión videográfica el área de Comunicación Social del Congreso, la cual hará llegar a la primera, para constancia.
+En ningún caso, se censurará, descalificará, o restringirá la expresión de otros, salvo que se haya agotado el tiempo convenido por cada intervención.

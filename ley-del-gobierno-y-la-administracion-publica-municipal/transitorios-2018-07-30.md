@@ -1,0 +1,5 @@
+P.O. 30 DE JULIO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO 1040.- SE REFORMAN LOS ARTÍCULOS 117, 119, 124 TER, 128 Y 137; Y ADICIONA A LOS ARTÍCULOS 61, 126 Y 128 DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE SAN LUIS POTOSÍ; SE EXPIDE EL REGLAMENTO PARA EL ACCESO A LA INFORMACIÓN Y PROTECCIÓN DE DATOS PERSONALES DEL CONGRESO DEL ESTADO DE SAN LUIS POTOSÍ, Y; SE ADICIONA AL TÍTULO DÉCIMO EL CAPÍTULO XIII CON LOS ARTÍCULOS 204, 205 Y 206 DEL REGLAMENTO PARA EL GOBIERNO INTERIOR DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSI".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. A la entrada en vigor del presente Decreto, se abroga el Reglamento para el Acceso a la Información y Protección de Datos Personales del Congreso del Estado de San Luis Potosí, publicado en el Periódico Oficial del Gobierno del Estado el 20 de noviembre de 2008.
+TERCERO. Se derogan todas las disposiciones legales que se opongan al presente Decreto.

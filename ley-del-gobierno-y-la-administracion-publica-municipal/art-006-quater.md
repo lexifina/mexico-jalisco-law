@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE JULIO DE 2018)
+ARTICULO 6° QUÁTER. En el caso de las notificaciones practicadas en los estrados del Congreso, la cédula correspondiente deberá contener los datos de identificación del expediente o procedimiento de que se trate, una síntesis del documento que se notifique y la fecha en que se fija en los estrados. De ello el notificador levantará razón circunstanciada, la que se anexará al expediente.

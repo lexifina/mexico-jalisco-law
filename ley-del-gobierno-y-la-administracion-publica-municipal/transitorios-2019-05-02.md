@@ -1,0 +1,4 @@
+P.O. 2 DE MAYO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0158.- SE REFORMA EL ARTÍCULO 133 EN SU PÁRRAFO SEGUNDO, DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE SAN LUIS POTOSÍ; SE REFORMA EL ARTÍCULO 74 EN SU PÁRRAFO PRIMERO, DEL REGLAMENTO PARA EL GOBIERNO INTERIOR DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
