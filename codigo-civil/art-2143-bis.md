@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2003)
+Art. 2143 bis.- Si terminado el plazo establecido en el contrato o en la ley para el arrendamiento, y el arrendador solicita el bien, en los términos previstos por aquellos, el arrendatario deberá desocupar y entregar inmediatamente el inmueble.
+Si no lo hiciere y fuere demandado, por los días que permanezca en posesión del inmueble deberá pagar la renta que corresponda por el tiempo que exceda conforme a lo convenido en el contrato, actualizándose el pago de la renta conforme al interés legal establecido en el presente código.

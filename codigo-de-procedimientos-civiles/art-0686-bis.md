@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2003)
+ARTICULO 686 bis.- El juez debe citar a la audiencia de pruebas y alegatos, dentro de los treinta días posteriores a la emisión del auto que admite la contestación de la demanda o de la reconvención, en su caso, previniendo a las partes, con por lo menos cinco días de anticipación a la fecha señalada para la celebración de la audiencia, para que aporten los elementos necesarios para el desahogo de las pruebas a su cargo.
+Abierta la audiencia se procederá al desahogo, por su orden, de las pruebas y una vez desahogadas, se procederá a la formulación de alegatos, ya sea oralmente o por escrito. Acto continuo el juez citará a las partes, para oír sentencia, misma que deberá ser dictada, dentro de los quince días siguientes.
+(F. DE E., P.O. 30 DE MARZO DE 2004)
+Las partes podrán alegar verbalmente, sin que los alegatos puedan exceder de veinte minutos por cada parte, incluyendo las réplicas y contrarréplicas.
