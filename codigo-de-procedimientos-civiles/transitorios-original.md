@@ -18,3 +18,4 @@ Dado en el Palacio de Gobierno del Estado, a los veinte días del mes de agosto 
 EVERARDO TOPETE.
 El Secretario Gral. de Gobierno,
 LIC. J. CARLOS OSORIO.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
