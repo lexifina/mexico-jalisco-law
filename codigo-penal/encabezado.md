@@ -1,8 +1,12 @@
-CÓDIGO DE PROCEDIMIENTOS PENALES PARA EL ESTADO DE BAJA CALIFORNIA SUR
-Ley publicada en el Boletín Oficial del Estado de Baja California Sur, el domingo 20 de marzo de 2005.
-VÍCTOR MANUEL LIZÁRRAGA PERAZA, SECRETARIO GENERAL DE GOBIERNO ENCARGADO DEL DESPACHO DEL GOBERNADOR DEL ESTADO DE BAJA CALIFORNIA SUR, A SUS HABITANTES HACE SABER:
-QUE EL H. CONGRESO DEL ESTADO, SE HA SERVIDO DIRIGIRME EL SIGUIENTE:
-DECRETO 1526
-EL H. CONGRESO DEL ESTADO DE BAJA CALIFORNIA SUR:
-DECRETA
-CÓDIGO DE PROCEDIMIENTOS PENALES PARA EL ESTADO DE BAJA CALIFORNIA SUR
+CODIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE JALISCO
+Código publicado en el Periódico Oficial del Estado de Jalisco, el jueves 2 de septiembre de 1982.
+Al margen un sello que dice: Gobierno de Jalisco. Poder Legislativo. Secretafa (sic) del Congreso. Estados Unidos Mexicanos.
+Flavio Romero de Velasco, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber:
+Que por la Secretaría del H. Congreso del Estado se me ha comunicado el siguiente
+DECRETO
+Número 10985. El Congreso del Estado decreta:
+Código Penal para el Estado Libre y Soberano de Jalisco.
+LIBRO PRIMERO
+TITULO PRELIMINAR
+CAPITULO UNICO
+De la aplicación de este Código
