@@ -1,4 +1,0 @@
-P.O. 15 DE MAYO DE 2023.
-[N. DE E. TRANSITORIOS DEL "DECRETO 0748.- SE REFORMA DEL TÍTULO DÉCIMO, LA DENOMINACIÓN DEL CAPÍTULO XI Y LOS ARTÍCULOS 197 EN SU PÁRRAFO PRIMERO, Y 198; Y SE ADICIONA EL ARTÍCULO 198 BIS AL CAPÍTULO XI DEL TÍTULO DÉCIMO, DEL REGLAMENTO PARA EL GOBIERNO INTERIOR DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSÍ".]
-PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
-SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
