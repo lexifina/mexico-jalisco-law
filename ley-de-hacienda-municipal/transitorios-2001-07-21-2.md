@@ -1,0 +1,3 @@
+P.O. 21 DE JULIO DE 2001.
+DECRETO NUMERO 19113.
+ÚNICO.- Este decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
