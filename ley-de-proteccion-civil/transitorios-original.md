@@ -4,8 +4,9 @@ Primero.- La presente Ley entrará en vigor al día siguiente de su publicación
 Segundo.- El Consejo Estatal de Protección Civil, se deberá instalar en un plazo no mayor de sesenta días a partir del día siguiente al de la publicación de esta Ley.
 Tercero.- El Programa Estatal de Protección Civil deberá aprobarse en un plazo no mayor de noventa días a partir del día siguiente al de la publicación de la presente Ley.
 Cuarto.- En tanto se expidan los reglamentos previstos en esta Ley, seguirán vigentes las disposiciones que regulan la integración y operación del Sistema Estatal de Protección Civil, contenidas en el Acuerdo del Poder Ejecutivo Estatal de 10 de octubre de 1989, publicado en el Periódico Oficial "El Estado de Jalisco" de 21 de octubre de 1989.
-(F. DE E., P.O. 4 DE SEPTIEMBRE DE 1993)
-Quinto.- Loa (sic) municipios dispondrán de un plazo de un año, a partir de la modificación de esta Ley, a fin de integrar sus sistemas municipales de protección civil y expedir el programa y reglamento municipal correspondiente.
+(REFORMADO, P.O. 3 DE FEBRERO DE 1998)
+Quinto. Los municipios dispondrán de un plazo de un año a partir de la modificación de esta Ley, a fin de integrar sus sistemas municipales de protección civil, expedir el programa y reglamento municipal correspondiente y poner en operación el Consejo y Unidad municipal de protección civil.
+Para tal efecto, los Cabildos de los Ayuntamientos aprobarán una partida presupuestal para dicha operación.
 Sexto.- Se deroga cualquier disposición estatal en vigor que se oponga a la presente Ley.
 Salón de Sesiones del H. Congreso del Estado
 Guadalajara. Jal., a 25 de junio de 1993
@@ -53,3 +54,4 @@ El Gobernador Interino del Estado
 Lic. Carlos Rivera Aceves
 El Secretario General de Gobierno
 Lic. José Luis Leal Sanabria
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
