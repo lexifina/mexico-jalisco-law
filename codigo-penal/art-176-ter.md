@@ -1,4 +1,8 @@
-(ADICIONADO, P.O. 23 DE SEPTIEMBRE DE 2000)
-Art. 176 Ter. Los jueces podrán aumentar hasta en una sexta parte las penas que correspondan o imponer tratamiento psicológico cuando entre los sujetos activo y pasivo hubiere vínculos de parentesco, matrimonio, tutela o custodia y se trate de delito doloso.
+(ADICIONADO [N. DE E. REFORMADO], P.O. 30 DE DICIEMBRE DE 2003)
+Artículo 176 Ter. Comete el delito de violencia intrafamiliar quien reiteradamente infiera maltrato en contra de uno a (sic) varios miembros de su familia, tales como cónyuge, pariente consanguíneo hasta cuarto grado, pariente afín hasta cuarto grado, concubina o concubinario, adoptante o adoptado.
+El maltrato a que se refiere el párrafo anterior es la sucesión de actos u omisiones que causen un deterioro a la integridad física, o psicológica, o que afecte la libertad sexual de alguna de las víctimas, independientemente de que se cometa o no otro delito.
+Al responsable de este delito se le impondrán de tres meses a tres años de prisión, y a juicio del juez, además, las penas conjuntas o separadas de, la pérdida de la custodia que tenga respecto de la víctima y la prohibición de ir a lugar determinado o de residir en él.
+Cuando no se trate de reincidentes de violencia intrafamiliar ni sujetos que pudieren poner en peligro la integridad de los miembros de la familia, la pena de prisión podrá ser conmutada a juicio del juzgador por tratamiento psicológico, el que en ningún caso excederá del tiempo impuesto en la pena de prisión.
+Se equipara a violencia intrafamiliar el maltrato reiterado que se infiera en contra del tutor, curador, pupilo, o en contra de quien habite en el domicilio del agresor o en contra de la persona a quien el agresor le deba dar cuidado o protección. Al responsable de este delito se le impondrá la pena señalada en el párrafo tercero de este artículo.
 CAPITULO II
 De la suposición y supresión del estado civil
