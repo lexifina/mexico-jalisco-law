@@ -3,6 +3,7 @@ Art. 179 Bis. Al ascendiente que ejerza la patria potestad o al que tenga a su c
 La misma pena a que se refiere el párrafo anterior, se le impondrá a quien reciba al menor y también al tercero que lleve a cabo la entrega de éste a cambio de un beneficio económico. Si el tercero a que se hace mención tiene carácter de directivo de alguna institución a quien corresponda la custodia del menor, se le aplicará además la pena de destitución y la inhabilitación definitiva para ocupar un cargo similar.
 Si la entrega del menor se hace sin la finalidad de obtener un beneficio económico, la pena que se aplicará a los responsables, será de 1 a 3 años de prisión.
 Si se acredita que quien recibió al menor, lo hizo para incorporarlo a su núcleo familiar y otorgarle los beneficios propios de tal incorporación, la pena se le reducirá hasta la cuarta parte de la prevista en el párrafo anterior. Tal reducción beneficiará a todos los que participaron en la comisión del delito, si no actuaron con la finalidad de obtener un beneficio económico. En este caso, sólo se procederá por querella o denuncia de parte interesada.
-Además de las sanciones señaladas, se privará de los derechos de patria potestad, tutela o custodia, en su caso, a quienes teniendo el ejercicio de éstos con respecto al menor entregado, cometan el delito a que se refiere el presente artículo.
+(ADICIONADO [N. DE E. REFORMADO], P.O. 2 DE FEBRERO DE 1995)
+La pena se duplicará cuando por consecuencia del tráfico del menor, éste resultare afectado en su integridad física por extraerle algún miembro u órgano.
 CAPITULO IV
 Bigamia
