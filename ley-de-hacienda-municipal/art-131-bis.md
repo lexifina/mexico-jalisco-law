@@ -31,9 +31,6 @@ Los notarios o quienes hagan sus veces, los registradores y las autoridades, no 
 En todo caso, al margen de la matriz y en los testimonios o en los documentos privados, deberá asentarse la constancia de pago o la que éste no se causa.
 No se dará trámite ni se registrará documento alguno si no obra en él dicha constancia.
 En el caso de que las obligaciones estipuladas estén sujetas a alguna condición, se causará el impuesto como si fuesen puras y simples.
-(ADICIONADO CON LA SECCION Y EL ARTICULO QUE LO INTEGRAN, P.O. 7 DE DICIEMBRE DE 1999)
-CAPITULO XI
-IMPUESTO SOBRE ESPECTACULOS PUBLICOS
 (ADICIONADA CON EL ARTICULO QUE LO INTEGRA, P.O. 7 DE DICIEMBRE DE 1999)
 SECCION PRIMERA
 Del Objeto
