@@ -18,3 +18,4 @@ El Gobernador Constitucional del Estado
 Ing. Alberto Cárdenas Jiménez
 El Secretario General de Gobierno
 Lic. Felipe de Jesús Preciado Coronado
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
