@@ -14,7 +14,7 @@ Lic. Fco. Javier Ramírez Acuña.
 Dip. Antonio Vizcaíno Barajas
 Dip. Santiago Camarena F.
 Dip. Dr. J. Antonio Barba Borrego
-Dip. Lic. Profirio Cortés Silva
+Dip. Lic. Porfirio Cortés Silva
 Dip. Gmo. Ramón de Alba González
 Dip. Ma. del Rosario Díaz Rosas
 Dip. Profr. Gustavo García Villa
