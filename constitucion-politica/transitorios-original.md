@@ -4,7 +4,8 @@ Art. 2º El actual Poder Legislativo, durará hasta el 31 de enero de 1919; el E
 Art. 3º El actual período de sesiones continuará con el carácter de ordinario hasta que el Congreso tenga a bien clausurarlo.
 (REFORMADO, P.O. 19 DE ENERO DE 1989)
 Art. 4º La LII Legislatura del Congreso del Estado, se instalará el primero de febrero de mil novecientos ochenta y nueve y los Diputados que la integren durarán en sus funciones, del citado día, al catorce de marzo de mil novecientos noventa y dos.
-Los periodos Ordinarios de Sesiones de esta Legislatura serán, del primer sábado de febrero al treinta y uno de marzo y del primero de septiembre al treinta y uno de diciembre de los años 1989, 1990 y 1991, respectivamente.
+(REFORMADO, P.O. 2 DE ENERO DE 1990)
+Los periodos Ordinarios de Sesiones de la LII Legislatura serán del primero de febrero al treinta y uno de marzo, y del primero de septiembre al treinta y uno de diciembre de los años 1990 y 1991, respectivamente.
 (REFORMADO, P.O. 19 DE ENERO DE 1989)
 Art. 5º El Gobernador del Estado que se elija para el próximo periodo constitucional, tomará posesión de su cargo el primero de marzo de mil novecientos ochenta y nueve y durará en él hasta el día último de febrero de 1995.
 El Congreso del Estado designará, por única vez, un Gobernador Provisional, que ejercerá el cargo, del primero al último de marzo de 1995.
