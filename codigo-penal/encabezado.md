@@ -1,4 +1,5 @@
 CODIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE JALISCO
+ULTIMA REFORMADA PUBLICADA EN EL PERIODICO OFICIAL: 31 DE DICIEMBRE DE 1983.
 Código publicado en el Periódico Oficial del Estado de Jalisco, el jueves 2 de septiembre de 1982.
 Al margen un sello que dice: Gobierno de Jalisco. Poder Legislativo. Secretafa (sic) del Congreso. Estados Unidos Mexicanos.
 Flavio Romero de Velasco, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber:
