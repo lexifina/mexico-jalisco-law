@@ -1,0 +1,3 @@
+P.O. 25 DE MARZO DE 1939.
+ARTICULO PRIMERO.- El presente Decreto surtirá efectos a partir del siguiente día a aquel en que se publique en el Periódico Oficial.
+ARTICULO SEGUNDO.- Las primeras elecciones para Munícipes a que se convoque en cada uno de los Municipios con posterioridad a la fecha en que entre en vigor este Decreto, se efectuarán con la advertencia de que los Munícipes que resultaren electos, sólo durarán en su cargo un año, a fin de que concluya su periodo al mismo tiempo que el de los demás Munícipes y pueda en lo sucesivo renovarse el Ayuntamiento en su totalidad cada dos años.
