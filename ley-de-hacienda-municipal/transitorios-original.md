@@ -17,3 +17,4 @@ El Gobernador Constitucional del Estado
 Lic. Enrique Alvarez del Castillo
 El Secretario General de Gobierno
 Lic. Eugenio Ruiz Orozco
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
