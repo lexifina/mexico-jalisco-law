@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 1994)
+ARTICULO 842 bis.- Debe nombrarse precisamente un interventor:
+I.- Siempre que el heredero esté ausente o no sea conocido;
+II.- Cuando la cuantía de los legados iguale o exceda a la porción del heredero albacea;
+III.- Cuando se hagan legados para objetos o establecimientos de Beneficencia Pública.
+Sección 3a.
+De los Intestados.
