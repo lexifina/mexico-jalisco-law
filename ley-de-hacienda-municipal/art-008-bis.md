@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE AGOSTO DE 1998)
+Art. 8° bis. Además de los ingresos que forman parte de la Hacienda Municipal, los municipios percibirán las aportaciones federales para fines específicos que a través de los diferentes fondos establezcan el Presupuesto de Egresos de la Federación, la Ley de Coordinación Fiscal y los convenios respectivos;
+Las aportaciones federales para fines específicos y sus accesorios no podrán aplicarse para cubrir erogaciones con fines distintos a los que señalan sus objetivos y no serán embargables, ni los ayuntamientos podrán, bajo ninguna circunstancia, gravarlos o afectarlos en garantía.
