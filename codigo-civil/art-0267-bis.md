@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE OCTUBRE DE 2000)
+Art. 267 bis.- El hombre y la mujer, acreditarán ante el Oficial del Registro Civil, el haber recibido el curso prematrimonial que no será menor de dos horas, cuyo contenido versará sobre los derechos y obligaciones que se contraen con el vínculo del matrimonio de acuerdo a los capítulos correspondientes de este Código. Dicho curso será diseñado e impartido por el Sistema Estatal para el Desarrollo Integral de la Familia.
