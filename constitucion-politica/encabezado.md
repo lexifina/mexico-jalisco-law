@@ -3,7 +3,6 @@ Constitución publicada en el Periódico Oficial del Estado de Jalisco, el 21, 2
 MANUEL M. DIEGUEZ, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber:
 Que la Cámara de Diputados del Congreso Local, ha tenido a bien decretar la siguiente Constitución:
 "El Congreso Constituyente del Estado Libre y Soberano de Jalisco, convocado por Decreto del Gobierno Provisional del Estado, de fecha 6 de abril de 1917, de acuerdo con el mandato del primer Jefe del Ejército Constitucionalista y Encargado del Poder Ejecutivo de la Nación, fechado el 6 de marzo del mismo año, cumpliendo con el objeto para el cual fue convocado, ha tenido a bien expedir la siguiente:
-N. DE E. DE ACUERDO A LO DISPUESTO POR EL DECRETO 15424, PUBLICADO EN P.O. DE 13 DE JULIO DE 1994, SE MODIFICA DE MANERA SUSTANCIAL PRACTICAMENTE TODO EL TEXTO QUE A LA FECHA TENIA DICHO ORDENAMIENTO, POR TAL MOTIVO SE PRESENTA EL TEXTO APROBADO Y PUBLICADO EN EL P.O. DE DICHA FECHA.
 Constitución Política del Estado de Jalisco
 (REFORMADO, P.O. 13 DE JULIO DE 1994)
 TITULO PRIMERO
