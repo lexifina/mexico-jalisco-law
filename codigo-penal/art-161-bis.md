@@ -4,5 +4,4 @@ Al responsable de este delito se le impondrán de tres meses a tres años de pri
 TITULO NOVENO
 FALSEDAD
 CAPITULO I
-Falsificación de documentos expedidos por la administración
-pública o de los documentos de crédito
+Falsificación de documentos expedidos por la administración pública o de los documentos de crédito

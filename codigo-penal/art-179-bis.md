@@ -5,5 +5,5 @@ Si la entrega del menor se hace sin la finalidad de obtener un beneficio económ
 Si se acredita que quien recibió al menor, lo hizo para incorporarlo a su núcleo familiar y otorgarle los beneficios propios de tal incorporación, la pena se le reducirá hasta la cuarta parte de la prevista en el párrafo anterior. Tal reducción beneficiará a todos los que participaron en la comisión del delito, si no actuaron con la finalidad de obtener un beneficio económico. En este caso, sólo se procederá por querella o denuncia de parte interesada.
 (ADICIONADO [N. DE E. REFORMADO], P.O. 2 DE FEBRERO DE 1995)
 La pena se duplicará cuando por consecuencia del tráfico del menor, éste resultare afectado en su integridad física por extraerle algún miembro u órgano.
-CAPITULO IV
+CAPITULO V
 Bigamia
