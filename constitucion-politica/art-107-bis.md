@@ -3,5 +3,5 @@ Art. 107 bis.- La responsabilidad del Estado y de los municipios por los daños 
 (REUBICADO, P.O. 28 DE ABRIL DE 1997)
 TITULO NOVENO
 (REUBICADO, P.O. 28 DE ABRIL DE 1997)
-CAPITULO I
-Prevenciones generales
+CAPITULO II
+De las reformas a la Constitución
