@@ -16,3 +16,4 @@ El Secretario General de Gobierno encargado del despacho del Ejecutivo del Estad
 LIC. FELIPE DE JESÚS PRECIADO CORONADO
 El Subsecretario General de Gobierno de Asuntos Jurídicos
 DR. MAURICIO LIMÓN AGUIRRE
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
