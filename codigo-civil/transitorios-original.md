@@ -22,3 +22,4 @@ El Gobernador Sustituto del Estado
 Lic. Carlos Rivera Aceves
 El Secretario General de Gobierno
 Lic. José Luis Leal Sanabria
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
