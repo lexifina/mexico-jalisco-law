@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 12 DE DICIEMBRE DE 2011)
-ARTÍCULO 17 BIS.- Los miembros de la comunidad escolar, a través de la Brigada, cuando detecten algún daño en la infraestructura del inmueble o instalaciones de la institución educativa que ponga en riesgo o en peligro la salud, integridad física o la vida de los miembros de la misma comunidad, lo harán del conocimiento del directivo del plantel escolar correspondiente.

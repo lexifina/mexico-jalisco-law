@@ -1,10 +1,9 @@
-LEY DE SEGURIDAD INTEGRAL ESCOLAR PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA
-Ley publicada en el Periódico Oficial del Estado de Puebla, el viernes 4 de febrero de 2011.
-Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
-LICENCIADO MARIO P. MARÍN TORRES, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a sus habitantes sabed:
-Que por la Secretaría del H. Congreso, se me ha remitido el siguiente:
-EL HONORABLE QUINCUAGÉSIMO SÉPTIMO CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE y' SOBERANO DE PUEBLA
-CONSIDERANDO
-[...]
-Por lo anteriormente expuesto y con fundamento en lo dispuesto por los artículos 57 fracción l. 63 fracción II de la Constitución Política del Estado Libre y Soberano de Puebla; 69 fracción II, 70 y 71 de la Ley Orgánica del Poder del Legislativo del Estado Libre y Soberano de Puebla; y 93 del Reglamento Interior del Honorable Congreso del Estado Libre y Soberano de Puebla, se emite la siguiente:
-LEY DE SEGURIDAD INTEGRAL ESCOLAR PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA.
+CONSTITUCION POLITICA DEL ESTADO DE JALISCO
+Constitución publicada en el Periódico Oficial del Estado de Jalisco, el 21, 25 y 28 de julio y 1 de agosto de 1917.
+MANUEL M. DIEGUEZ, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber:
+Que la Cámara de Diputados del Congreso Local, ha tenido a bien decretar la siguiente Constitución:
+"El Congreso Constituyente del Estado Libre y Soberano de Jalisco, convocado por Decreto del Gobierno Provisional del Estado, de fecha 6 de abril de 1917, de acuerdo con el mandato del primer Jefe del Ejército Constitucionalista y Encargado del Poder Ejecutivo de la Nación, fechado el 6 de marzo del mismo año, cumpliendo con el objeto para el cual fue convocado, ha tenido a bien expedir la siguiente:
+Constitución Política del Estado de Jalisco
+Título Primero
+CAPITULO PRIMERO
+De la Soberanía Interior del Estado y de la forma de Gobierno
