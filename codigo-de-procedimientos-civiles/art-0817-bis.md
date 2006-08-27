@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE AGOSTO DE 2006)
+ARTICULO 817 bis.- En los juicios sucesorios el Juez pedirá informe al Procurador de Justicia del Estado, al Director de Archivo de Instrumentos Públicos y al Director del Registro Nacional de Testamentos, acerca de si en su oficina se ha depositado algún testamento del autor de la sucesión, para que en caso de que así sea, se le remita copia autorizada del mismo.
