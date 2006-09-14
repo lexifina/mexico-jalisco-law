@@ -1,0 +1,3 @@
+P.O. 15 DE AGOSTO DE 2006.
+PRIMERO. El presente decreto entrará en vigor a los 30 días siguientes de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. Las autoridades del Ministerio Público, Reclusorios y Sedes Judiciales, deberán exhibir en los recintos de detención los derechos que establece la Constitución Política de los Estados Unidos Mexicanos y en los tratados, acuerdos y convenciones internacionales que el Gobierno Federal haya firmado o de los que celebre o forme parte para los detenidos o procesados, dentro del plazo de la publicación del presente decreto y su entrada en vigor.
