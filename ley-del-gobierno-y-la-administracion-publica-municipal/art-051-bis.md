@@ -1,0 +1,4 @@
+(NOTA: EL 16 DE FEBRERO DE 2010, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL CONSIDERANDO SEXTO Y EL RESOLUTIVO CUARTO DE LA SENTENCIA DICTADA AL RESOLVER LA CONTROVERSIA CONSTITUCIONAL 19/2007, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 19 DE FEBRERO DE 2010 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/juridica/engroses/cerrados/289/07000190.009.doc).
+(REFORMADO [N. DE E. ADICIONADO], P.O. 5 DE ENERO DE 2007)
+Artículo 51 bis. Los munícipes pueden organizarse en fracciones edilicias, a efecto de garantizar la libre expresión de las corrientes ideológicas en los ayuntamientos, de conformidad con lo establecido en la reglamentación de la materia.
+Sólo puede existir una fracción por partido político con representación en cada Ayuntamiento.
