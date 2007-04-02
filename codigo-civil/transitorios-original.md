@@ -8,6 +8,8 @@ SEXTO.- Se abroga la "Ley sobre el Régimen de Propiedad y Condominio de Inmuebl
 SEPTIMO.- Los titulares de derechos de copropiedad que al entrar en vigor este código deseen sujetar sus derechos al régimen de condominio habitacional duplex a que se refiere el capítulo VIII del título sexto del libro tercero, lo harán mediante documento privado en el que cumplirán los requisitos a que alude la fracción I del artículo 1037 del código que se expide mediante el presente decreto. Las firmas de los otorgantes deberán ser ratificadas ante notario o el Registro Público de la Propiedad para proceder a su inscripción.
 OCTAVO.- Los derechos y obligaciones derivados de hechos y actos jurídicos celebrados bajo la vigencia del código anterior se regirán por el mismo.
 NOVENO.- Cuando en alguna ley o documento conste un acto jurídico y se haga referencia a una disposición específica del código que se deroga, se considerará hecha a la que corresponda en este código.
+(ADICIONADO, P.O. 11 DE ENERO DE 2007)
+DECIMO.- Lo dispuesto por lo (sic) artículos 1893 y 1894 del presente código será aplicable a los contratos de compraventa formalizados con anterioridad al día 14 de septiembre de 1995, si la declaración se realiza a través de testamento o instrumento público.
 SALON DE SESIONES DEL CONGRESO DEL ESTADO
 Guadalajara, Jalisco, a 8 de febrero de 1995.
 DIPUTADO PRESIDENTE
