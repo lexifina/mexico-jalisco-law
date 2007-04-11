@@ -1,0 +1,11 @@
+(ADICIONADO, P.O. 30 DE ENERO DE 2007)
+Art.142 D. Se impondrá una pena de tres a quince años de prisión y multa de quinientos a diez mil días de salario mínimo, a la persona que incurra en las siguientes conductas:
+I Induzca, obligue o entregue a una persona menor de dieciocho años de edad o que no tenga capacidad para comprender el significado del hecho, con o sin su consentimiento, para que realice o simule actos de exhibicionismo corporal, de naturaleza sexual o lasciva, con el fin de producir imágenes o sonidos de dichos actos a través de fotografías; filmes, videos, revistas o cualquier otro medio impreso, electrónico o tecnológico, con o sin ánimo de lucro;
+II. Realice materialmente la toma de fotografías, filmación, grabación de imágenes o sonidos, o cualquier otra actividad relativa con la producción o reproducción de las imágenes o sonidos a que se refiere la fracción anterior;
+III. A quien emplee, dirija, administre o supervise a título de dueño, propietario, director, empresario o cualquier otro que implique la autoría intelectual de los actos señalados en las fracciones I y II; ó
+IV. Reproduzca, venda, compre, rente, exponga, publicite, difunda o envíe por cualquier medio con o sin ánimo de lucro, las imágenes o sonidos señalados en la fracción I de este artículo.
+Se impondrá una multa de cien a quinientos días de salario mínimo a quien posea una o más fotografías, filmes, grabaciones o cualquier otro material impreso o electrónico, que contenga las imágenes o sonidos señaladas en este artículo, cuando sea de su conocimiento el hecho de la posesión y de la minoría de edad de las personas que aparecen en las imágenes.
+Si las conductas señaladas en este artículo son cometidas por servidores públicos valiéndose de la función que desempeña, por quien tenga parentesco consanguíneo o por afinidad hasta el cuarto grado o por quienes laboran en organismos públicos o privados dedicadas al cuidado y atención de personas menores de dieciocho años de edad o que no tengan capacidad para comprender el significado del hecho, la pena se aumentará en una tercera parte de la que corresponda y procederá en su caso la destitución del puesto, comisión o cargo público.
+(ADICIONADO CON EL ARTICULO QUE LO INTEGRA, P.O. 30 DE ENERO DE 2007)
+CAPITULO III
+Atentados al Pudor

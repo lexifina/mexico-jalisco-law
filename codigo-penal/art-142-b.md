@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE ENERO DE 2007)
+Art. 142 B. Se impondrán de un mes a tres años de prisión, multa por el importe de setenta a doscientos días de salario y cierre temporal o definitivo del establecimiento, al que por cualquier prestación en efectivo, especie o gratuitamente, utilice para beneficio propio o del establecimiento, los servicios con persona menor de dieciocho años de edad o con quien no tengan capacidad para comprender el significado del hecho en cantinas, tabernas o centros de vicio.
