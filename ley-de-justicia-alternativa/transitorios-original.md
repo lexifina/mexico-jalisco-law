@@ -1,5 +1,6 @@
 TRANSITORIOS
-PRIMERO. El presente decreto entrará en vigor el día 1º de enero de 2008, previa su publicación en el Periódico Oficial "El Estado de Jalisco".
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 2007)
+PRIMERO. El presente decreto entrará en vigor el día 1º de mayo de 2008, previa su publicación en el periódico oficial El Estado de Jalisco.
 SEGUNDO. El Presupuesto de Egresos del Gobierno del Estado de Jalisco para el año fiscal 2008 contemplará las prevenciones financieras necesarias para la vigencia y aplicación del presente decreto. Se autoriza al Poder Ejecutivo del Estado a realizar todas las modificaciones presupuestarias para el debido cumplimiento del presente decreto.
 TERCERO. El nombramiento del Director General deberá realizarlo el Congreso del Estado previo a la entrada en vigor de esta ley, conforme a lo que esta Ley establece.
 CUARTO. Los convenios que se celebren en municipios que no tengan instalada una sede regional del Instituto, será competente por acuerdo de las partes ya sea la sede regional más cercana, el Director General del Instituto o el juez de primera instancia del partido judicial que corresponda.
@@ -22,3 +23,4 @@ MTRO. GERARDO OCTAVIO SOLÍS GÓMEZ
 El Secretario General de Gobierno
 C.P. JOSÉ RAFAEL RÍOS MARTÍNEZ
 (RÚBRICA)
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
