@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 1 DE MAYO DE 2008)
+Art. 81 bis. Cuando se trate de municipios pertenecientes a una misma área metropolitana, éstos se coordinarán, en pleno ejercicio de sus facultades constitucionales, de acuerdo con las bases generales que en materia de coordinación metropolitana expida el Congreso del Estado.
+La coordinación metropolitana se efectuará a través de las siguientes instancias:
+I. Una instancia de coordinación política por cada una de las áreas metropolitanas, que se integrarán por los presidentes municipales de los ayuntamientos del área metropolitana correspondiente y, previo convenio, por el Gobernador del Estado. La personalidad jurídica de dichas instancias será definida por sus integrantes;
+II. Una instancia de carácter técnico que estará constituido como un organismo público descentralizado, con personalidad jurídica y patrimonio propios denominado Instituto Metropolitano de Planeación, mismo que deberá ser constituido por los ayuntamientos del área metropolitana correspondiente; y
+III. Una instancia consultiva y de participación ciudadana, de carácter honorífico, por cada una de las áreas metropolitanas, que podrá participar en las tareas de evaluación y seguimiento.
+Las reglas para la organización y funcionamiento de las instancias de coordinación metropolitana, estarán establecidas en las leyes que sobre la materia expida el Congreso del Estado de Jalisco.
