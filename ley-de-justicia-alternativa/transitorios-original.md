@@ -1,9 +1,10 @@
 TRANSITORIOS
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 2007)
-PRIMERO. El presente decreto entrará en vigor el día 1º de mayo de 2008, previa su publicación en el periódico oficial El Estado de Jalisco.
+N. DE E. DE CONFORMIDAD A LO DISPUESTO POR EL ARTICULO UNICO TRANSITORIO DEL DECRETO NUMERO 22216/LVIII/08 ENTRARA EN VIGOR EL DIA 1°. DE ENERO DE 2009, PREVIA SU PUBLICACIÓN.
+PRIMERO. (DEROGADO, P.O. 29 DE ABRIL DE 2008)
 SEGUNDO. El Presupuesto de Egresos del Gobierno del Estado de Jalisco para el año fiscal 2008 contemplará las prevenciones financieras necesarias para la vigencia y aplicación del presente decreto. Se autoriza al Poder Ejecutivo del Estado a realizar todas las modificaciones presupuestarias para el debido cumplimiento del presente decreto.
 TERCERO. El nombramiento del Director General deberá realizarlo el Congreso del Estado previo a la entrada en vigor de esta ley, conforme a lo que esta Ley establece.
-CUARTO. Los convenios que se celebren en municipios que no tengan instalada una sede regional del Instituto, será competente por acuerdo de las partes ya sea la sede regional más cercana, el Director General del Instituto o el juez de primera instancia del partido judicial que corresponda.
+N. DE E. DE CONFORMIDAD A LO DISPUESTO POR EL ARTICULO UNICO TRANSITORIO DEL DECRETO NUMERO 22216/LVIII/08 ENTRARA EN VIGOR EL DIA 1°. DE ENERO DE 2009, PREVIA SU PUBLICACIÓN.
+CUARTO. (DEROGADO, P.O. 29 DE ABRIL DE 2008)
 SALÓN DE SESIONES DEL CONGRESO DEL ESTADO
 GUADALAJARA, JALISCO, 30 DE DICIEMBRE DE 2006
 Diputado Presidente
