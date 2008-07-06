@@ -1,0 +1,19 @@
+P.O. 5 DE JULIO DE 2008.
+PRIMERO. El presente decreto entrará en vigor el día siguiente al de su publicación en el periódico oficial El Estado de Jalisco.
+SEGUNDO. Para los efectos del artículo 117 de la Constitución Política del estado de Jalisco, remítase a los 125 ayuntamientos del estado, con los debates que hubiere provocado, a efecto de que remitan a esta Legislatura su voto en calidad de integrantes del poder revisor de la Constitución local.
+TERCERO. Para los efectos de lo establecido en la fracción V del artículo 12 de la Constitución local, en un plazo no mayor a treinta días naturales contados a partir de la entrada en vigor del presente decreto, el Congreso del Estado procederá a integrar el Consejo General del Instituto Electoral y de Participación Ciudadana del estado de Jalisco, conforme a las siguientes bases:
+a) Elegirá al Consejero Presidente, cuyo mandato concluirá el 31 de julio de 2011;
+b) Elegirá a tres consejeros electorales, que concluirán su mandato el 31 de julio de 2011, y
+c) Elegirá a tres consejeros electorales que concluirán su mandato el 31 de julio de 2010.
+Los consejeros electorales y el Consejero Presidente del Instituto Electoral del estado de Jalisco en funciones a la entrada en vigor del presente decreto, podrán participar en el procedimiento para la integración del nuevo Instituto Electoral y de Participación Ciudadana del estado de Jalisco, en igualdad de condiciones con el resto de los aspirantes, y en su caso, continuarán en sus cargos hasta en tanto el Congreso del Estado dé cumplimiento a lo dispuesto en el presente artículo.
+Los consejeros en funciones que opten por no participar en el proceso de integración del nuevo organismo, o que participando, no sean electos mediante el procedimiento que realice el Poder Legislativo, percibirán por concepto de indemnización la cantidad equivalente a los sueldos que hubieren devengado de haber terminado el periodo para el que fueron electos.
+CUARTO. El Instituto Electoral deberá elaborar, conforme a las bases que establece esta Constitución, el cálculo de financiamiento público que corresponde a los partidos políticos para los meses de julio a diciembre de 2008. Para estos efectos, se tomará como base el total de ciudadanos inscritos en el Padrón Electoral en el estado de Jalisco, con corte al mes de diciembre de 2007.
+QUINTO. Por única vez el Instituto Electoral deberá establecer, conforme a las bases legales que se expidan, tope de gastos de campaña para gobernador del estado en el año 2008, sólo para efecto de determinar el monto total de financiamiento privado que podrá obtener anualmente cada partido político.
+SEXTO. Para los efectos de la toma de posesión de los cargos de elección popular, se estará conforme a las siguientes bases:
+a) Los munícipes electos en el proceso 2009, entrarán en funciones el primero de enero de 2010 y concluirán su encargo el 30 de septiembre de 2012;
+b) Los diputados electos en el proceso 2009, entrarán en funciones el primero de febrero de 2010 y concluirán su encargo el día 31 de octubre de 2012, y
+c) El gobernador electo en el proceso de 2012, entrará en funciones el primero de marzo de 2013 y concluirá su encargo el día 5 de diciembre de 2018.
+SÉPTIMO. El Congreso del Estado deberá realizar las adecuaciones que correspondan en las leyes respectivas, dentro de los treinta días naturales siguientes a la entrada en vigor del presente decreto.
+OCTAVO. Se derogan todas las disposiciones que contravengan el presente decreto.
+NOVENO. El Instituto Electoral y de Participación Ciudadana del estado de Jalisco deberá realizar una evaluación de la distribución de distritos locales, con base en el censo general de población que se realice en el año 2010.
+DÉCIMO. El proceso electoral 2009, iniciará con la convocatoria que apruebe y publique el Instituto Electoral y de Participación Ciudadana del estado de Jalisco, en la primera semana de diciembre de 2008.

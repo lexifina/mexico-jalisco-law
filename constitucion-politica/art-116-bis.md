@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 5 DE JULIO DE 2008)
+Art. 116 bis. Los servidores públicos del Estado y los municipios, tienen en todo tiempo la obligación de aplicar con imparcialidad los recursos públicos que están bajo su responsabilidad, sin influir en la equidad de la competencia entre los partidos políticos.
+La propaganda, bajo cualquier modalidad de comunicación social, que difundan como tales los poderes públicos, los órganos autónomos, dependencias y entidades de la administración pública, los municipios, organismos públicos descentralizados y cualquier otro ente público, deberá tener carácter institucional y fines informativos, educativos o de orientación social. En ningún caso esta propaganda incluirá nombres, imágenes, voces o símbolos que impliquen promoción personalizada de cualquier servidor público.
+Las leyes, en sus respectivos ámbitos de aplicación, garantizarán el estricto cumplimiento de lo previsto en los dos párrafos anteriores, incluyendo el régimen de sanciones a que haya lugar.
+(REUBICADO, P.O. 28 DE ABRIL DE 1997)
+CAPITULO II
+De las reformas a la Constitución
