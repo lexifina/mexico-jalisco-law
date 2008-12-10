@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2008)
+Art. 183 B. Se impondrá pena de seis meses a cuatro años de prisión y multa de doscientos a seiscientos días al responsable que, estando obligado a informar acerca de los ingresos de quienes deban cumplir con todas las obligaciones alimentarias, incumpla con la orden judicial de hacerlo, no lo haga dentro del término ordenado por el juez u omita realizar de inmediato el descuento al salario, una vez que haya sido realizada debidamente la notificación.
