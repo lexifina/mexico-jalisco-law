@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE NOVIEMBRE DE 2010)
+Artículo 22 bis.- Cuando en el escrito de reclamación o sus anexos se advierta alguna omisión o inconsistencia, se prevendrá al promovente por escrito y una sola vez para que subsane las omisiones o aclare las inconsistencias en un plazo de cinco días hábiles y se le apercibirá que de no cumplir en el plazo concedido se desechará de plano su solicitud.
+Cuando la omisión o inconsistencia materia de la prevención sea relativa a la fracción VII del artículo anterior, se apercibirá al promovente que de no subsanarla en un plazo de cinco días hábiles se le tendrá por perdido el derecho de ofrecer pruebas.
