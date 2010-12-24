@@ -1,0 +1,2 @@
+Artículo Segundo. Se abroga la Ley para la Juventud del Estado de Guanajuato, contenida en el Decreto número 289, expedida por la Quincuagésimo Novena Legislatura, publicado en el Periódico Oficial del Gobierno del Estado, número 132, tercera parte, de fecha 18 de agosto de 2006, con las salvedades que se establecen en los artículos siguientes.
+Derogación de disposiciones que se opongan a la presente Ley

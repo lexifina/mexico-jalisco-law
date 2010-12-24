@@ -1,6 +1,7 @@
-LEY DE FOMENTO A LA CULTURA
-Ley Publicada en el Periódico Oficial el 21 de diciembre de 2000 Sección II.
-Al margen un sello que dice: Gobierno del Estado de Jalisco, Poder Ejecutivo, Secretaria General de Gobierno. Estados Unidos Mexicanos.
-Alberto Cárdenas Jiménez, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber, que por conducto de la Secretaría del H. Congreso de esta Entidad Federativa, se me ha comunicado el siguiente decreto
-NUMERO 18673.- EL CONGRESO DEL ESTADO DECRETA:
-LEY DE FOMENTO A LA CULTURA
+LEY PARA LA JUVENTUD DEL ESTADO DE GUANAJUATO
+N. DE E. DE CONFORMIDAD CON LOS ARTÍCULOS PRIMERO Y SEGUNDO TRANSITORIOS DE LA LEY PARA LA JUVENTUD DEL ESTADO DE GUANAJUATO, PUBLICADA EN EL P.O. DE 16 DE DICIEMBRE DE 2014, EL PRESENTE ORDENAMIENTO QUEDA ABROGADO A LOS NOVENTA DÍAS POSTERIORES AL DE SU PUBLICACIÓN.
+Ley publicada en la Segunda Parte del Periódico Oficial del Estado de Guanajuato, el viernes 4 de septiembre de 2009.
+JUAN MANUEL OLIVA RAMÍREZ, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE GUANAJUATO, A LOS HABITANTES DEL MISMO SABED:
+QUE EL H. CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE GUANAJUATO, HA TENIDO A BIEN DIRIGIRME EL SIGUIENTE:
+DECRETO NÚMERO 266
+LA SEXAGÉSIMA LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE GUANAJUATO, DECRETA:

@@ -1,0 +1,2 @@
+Artículo Undécimo. Las personas que a la entrada en vigor de la presente Ley presten un servicio personal subordinado a la Comisión Estatal del Deporte y Atención a la Juventud, a través de su órgano desconcentrado denominado Instituto Estatal de la Juventud de Guanajuato, pasarán a formar parte del Instituto de la Juventud Guanajuatense, de acuerdo a sus funciones y capacidad, y conservarán las remuneraciones, prestaciones y antigüedad de las cuales gozan a la entrada en vigor de la presente Ley.
+Denominación de la CEDAJ y competencia del Instituto

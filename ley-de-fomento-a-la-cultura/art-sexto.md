@@ -1,0 +1,2 @@
+Artículo Sexto. Por única ocasión y para efectos de la instalación del Consejo Directivo del Instituto de la Juventud Guanajuatense, el Titular del Poder Ejecutivo designará en forma directa a los representantes de las organizaciones de atención a la juventud y del sector privado, descritos en las fracciones VIII y IX del artículo 17 del presente Decreto.
+Término para crear los organismos municipales
