@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 30 DE JULIO DE 2011)
+Art. 653-ter.- La designación de tutor podrá otorgarse mediante:
+I. Escritura especial otorgada ante notario, en donde se observarán las mismas solemnidades del testamento público abierto, o
+II. Acta de tutela realizada ante el Oficial del Registro Civil de conformidad con la Ley del Registro Civil, o
+III. Declaración judicial interpuesta mediante jurisdicción voluntaria que reconozca la solicitud de declaración de tutor y curador voluntario.
