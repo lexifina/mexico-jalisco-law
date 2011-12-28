@@ -1,5 +1,5 @@
 TRANSITORIOS
-Primero.- El presente Decreto entrará en vigor el 1º de enero de 2009, previa publicación en el Periódico Oficial ¡El Estado de Jalisco¡.
+Primero.- El presente Decreto entrará en vigor el 1º de enero de 2009, previa publicación en el Periódico Oficial íEl (sic) Estado de Jaliscoî (sic).
 Segundo.- Se abroga la Ley de Desarrollo Urbano del Estado de Jalisco, contenida en el decreto número 15097 de fecha 2 de julio de 1993, publicado en el periódico oficial "El Estado de Jalisco" el 11 de julio de 1993 y sus subsecuentes reformas.
 Tercero.- Se derogan todas las disposiciones que se opongan al presente Código.
 Cuarto.- Los ayuntamientos deberán expedir o modificar sus reglamentos en la materia en un plazo de 550 días a partir de la vigencia de este Código, plazo en el cual deberán aplicar el que tengan vigente a la fecha de entrada en vigor de este decreto o en su defecto el Reglamento Estatal de Zonificación.
@@ -29,4 +29,4 @@ EMILIO GONZÁLEZ MÁRQUEZ
 El Secretario General de Gobierno
 LIC. FERNANDO ANTONIO GUZMÁN PÉREZ PELÁEZ
 (RÚBRICA)
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
