@@ -1,0 +1,3 @@
+P.O. 27 DE DICIEMBRE DE 2011.
+DECRETO No. 23914/LIX/11, POR EL QUE SE ADICIONAN UNA FRACCIÓN XVIII-BIS AL ARTÍCULO 5.°, UNA FRACCIÓN XI AL ARTÍCULO 90 Y UNA FRACCIÓN IX AL ARTÍCULO 97, TODOS ELLOS DEL CÓDIGO URBANO PARA EL ESTADO DE JALISCO.
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial El Estado de Jalisco.
