@@ -1,4 +1,4 @@
-CODIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE JALISCO
+CÓDIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE JALISCO
 Código publicado en el Periódico Oficial del Estado de Jalisco, el 24 de diciembre de 1938.
 EVERARDO TOPETE, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber:
 Que por la Secretaría del H. Congreso del Estado me ha sido comunicado el siguiente
