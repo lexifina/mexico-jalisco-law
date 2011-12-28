@@ -9,7 +9,7 @@ III.- La caducidad de la primera instancia convierte en ineficaces las actuacion
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 1994)
 IV.- La caducidad de la segunda instancia deja firmes las resoluciones apeladas. Así lo declarará el tribunal de apelación;
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 1994) (F. DE E., P.O. 26 DE ENERO DE 1995)
-V.- La caducidad de los incidentes se causa por el transcurso de noventa días naturales contados a partir de la notificación de la última determinación judicial, sin promoción tendiente a la prosecución del procedimiento incidental, la declaración respectiva sólo afectará a las actuaciones del incidente sin abarcar las de la instancia principal cuando haya quedado en suspenso ésta por la admisión de aquél, en caso contrario afectará también a ésta, siempre y cuando haya transcurrido el lapso de tiempo señalado en el párrafo primero de este artículo;
+V.- La caducidad de los incidentes se causa por el transcurso de noventa días naturales contados a partir de la notificación de la última determinación judicial, sin promoción tendiente a la prosecución del procedimiento incidental, la declaración respectiva sólo afectará a las actuaciones del incidente sin abarcar las de la instancia principal cuando haya quedado en suspenso ésta por la admisión de aquél, en caso contrario afectará también ésta, siempre y cuando haya transcurrido el lapso de tiempo señalado en el párrafo primero de este artículo;
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 1994)
 VI.- Para los efectos previstos por el artículo que regula la interrupción de la prescripción, se equipara a la desestimación de la demanda la declaración de caducidad del proceso;
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 1994)
