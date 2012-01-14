@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 7 DE AGOSTO DE 1999)
 Art. 131 bis. Es objeto de este impuesto:
-(REFORMADO PRIMER PARRAFO, P.O. 25 DE JULIO DE 2000)
+(REFORMADO PRIMER PÁRRAFO, P.O. 25 DE JULIO DE 2000)
 I. La realización, celebración o expedición de los actos o contratos relativos a construcción, reconstrucción o ampliación de inmuebles.
 En todos los casos en que se efectúen actos comprendidos en el párrafo anterior, se considera que se ha celebrado el contrato respectivo.
 No se considerarán como objeto de este impuesto los casos de autoconstrucción. Se entiende que existe autoconstrucción cuando se agoten los siguientes requisitos:
@@ -33,7 +33,7 @@ Los notarios o quienes hagan sus veces, los registradores y las autoridades, no 
 En todo caso, al margen de la matriz y en los testimonios o en los documentos privados, deberá asentarse la constancia de pago o la que éste no se causa.
 No se dará trámite ni se registrará documento alguno si no obra en él dicha constancia.
 En el caso de que las obligaciones estipuladas estén sujetas a alguna condición, se causará el impuesto como si fuesen puras y simples.
-(ADICIONADO CON LA SECCION Y EL ARTICULO QUE LO INTEGRAN, P.O. 7 DE DICIEMBRE DE 1999)
+(ADICIONADO CON LA SECCIÓN Y EL ARTÍCULO QUE LO INTEGRA, P.O. 7 DE DICIEMBRE DE 1999)
 CAPITULO XI
 IMPUESTO SOBRE ESPECTACULOS PUBLICOS
 (ADICIONADA CON EL ARTICULO QUE LO INTEGRA, P.O. 7 DE DICIEMBRE DE 1999)

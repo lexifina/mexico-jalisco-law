@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 28 DE FEBRERO DE 2004)
 Art. 236 bis.- Los Ayuntamientos están obligados a conservar la documentación comprobatoria de su contabilidad de archivos físicos por seis años.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (REFORMADO, P.O. 5 DE JULIO DE 2008)
 La Auditoría Superior del Estado, podrá autorizar la destrucción de la documentación del primer año de la administración saliente, al inicio de una nueva, siempre y cuando se haya emitido la aprobación de la última cuenta pública anual de la que concluye su ejercicio constitucional.
 Al rendir la aprobación de la cuenta anual correspondiente al segundo ejercicio fiscal de la administración en funciones, podrá autorizar la destrucción de la documentación correspondiente al segundo año de la administración anterior, y así sucesivamente para las cuentas anuales subsiguientes.

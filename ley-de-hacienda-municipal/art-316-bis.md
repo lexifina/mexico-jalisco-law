@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 11 DE OCTUBRE DE 2011)
+(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE OCTUBRE DE 2011)
 Art. 316 Bis. La revocación de las licencias o permisos para operar los giros restringidos establecidos en la Ley para Regular la Venta y el Consumo de Bebidas Alcohólicas del Estado de Jalisco, se sujeta a los procedimientos establecidos en los ordenamientos municipales respectivos y, en su defecto, al siguiente procedimiento:
 (REFORMADA, P.O. 11 DE OCTUBRE DE 2011)
 I. Cuando el Presidente Municipal tenga conocimiento de la existencia de cualquiera de las causas de revocación señaladas en los artículos 315 de la Ley de Hacienda Municipal del Estado de Jalisco y 58 de la Ley para Regular la Venta y Consumo de Bebidas Alcohólicas, o lo señalado por los ordenamientos municipales respectivos, iniciará mediante acuerdo escrito el procedimiento de revocación;
