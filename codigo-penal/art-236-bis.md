@@ -18,7 +18,6 @@ I. De seis a once años de prisión y multa por el importe de veinte a ochenta d
 II. De siete años seis meses a trece años de prisión y multa por el importe de treinta a cien días de salario, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
 III. De nueve a quince años de prisión y multa por el importe de cuarenta a ciento veinte días de salario, cuando el valor de lo robado exceda del monto de mil días de salario;
 IV. De seis a diez años de prisión, cuando no pudiere determinarse el valor de lo robado, o si por su naturaleza, no fuere estimable en dinero.
-En todos los casos de robo para estimar su cuantía o determinar que no es estimable en dinero, se atenderá únicamente al valor intrínseco de la cosa robada, fijado primordialmente por Perito; y
 (ADICIONADA, P.O. 5 DE MARZO DE 1998)
 V. De cinco a 18 años de prisión y hasta mil días de multa. También podrá aplicársele la prohibición de ir a lugar determinado o vigilancia de la autoridad, hasta por un término igual al de la sanción privativa de la libertad impuesta.
 (REFORMADO, P.O. 7 DE OCTUBRE DE 2010)
