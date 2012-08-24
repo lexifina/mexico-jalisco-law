@@ -4,7 +4,7 @@ SEGUNDO. La derogación de la fracción XVIII del artículo 146 del Código Pena
 TERCERO. El Instituto de Transparencia e Información Pública del Estado debe:
 I. Emitir y publicar el reglamento marco de información pública para sujetos obligados, dentro de los sesenta días naturales siguientes a la entrada en vigor del presente decreto;
 II. Emitir y publicar los lineamientos generales de clasificación de información pública, de publicación y actualización de información fundamental, y de protección de información confidencial y reservada, dentro de los treinta días naturales siguientes a la entrada en vigor del presente decreto;
-IlI. Autorizar los criterios generales de los sujetos obligados, en materia de clasificación de información pública, de publicación y actualización de información pública fundamental, y de protección de información confidencial y reservada, dentro de los treinta días naturales siguientes a su presentación ante el Instituto;
+III. Autorizar los criterios generales de los sujetos obligados, en materia de clasificación de información pública, de publicación y actualización de información pública fundamental, y de protección de información confidencial y reservada, dentro de los treinta días naturales siguientes a su presentación ante el Instituto;
 IV. Elaborar y distribuir entre los sujetos obligados, dentro de los sesenta días naturales siguientes a la entrada en vigor del presente decreto, los formatos guía para
 a) Solicitar información pública de libre acceso;
 b) Denunciar falta de transparencia de la información fundamental;
