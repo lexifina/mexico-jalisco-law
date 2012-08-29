@@ -1,4 +1,4 @@
-CONSTITUCION POLITICA DEL ESTADO DE JALISCO
+CONSTITUCIÓN POLÍTICA DEL ESTADO DE JALISCO
 Constitución publicada en el Periódico Oficial del Estado de Jalisco, el 21, 25 y 28 de julio y 1 de agosto de 1917.
 MANUEL M. DIEGUEZ, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber:
 Que la Cámara de Diputados del Congreso Local, ha tenido a bien decretar la siguiente Constitución:

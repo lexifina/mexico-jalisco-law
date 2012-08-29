@@ -8,4 +8,4 @@ Art. 6º (DEROGADO, P.O. 13 DE JULIO DE 1994)
 Art. 7º (DEROGADO, P.O. 13 DE JULIO DE 1994)
 Dado en el Salón de sesiones del Congreso del Estado, a ocho de julio de mil novecientos diecisiete.
 Firmados: Presidente, M. Bouquet Jr., Diputado por el Primer Distrito.- Vice-Presidente, Carlos Galindo, Diputado por el 5o. Distrito.- V.L. Velarde, Diputado por el 4o. Distrito.- Ramón Delgado, Diputado por el 6o. Distrito.- J.W. Torres, Diputado por el 7o. Distrito.- Tomás Morán, Diputado por el 9o.- Distrito. Jesús Camarena, Diputado por el 10o. Distrito.- Ambrosio Ulloa, Diputado por el 11o. Distrito.- Marcos Guzmán, Diputado por el 12o. Distrito.- Fausto Ulloa, Diputado por el 13o. Distrito.- Pedro Alarcón, Diputado por el 15o. Distrito.- Sebastián Allende, Diputado por el 16o. Distrito.- Secretario, J. Guadalupe Rubalcava, Diputado por el 3er. Distrito.- Secretario, Julián Villaseñor Mejía, Diputado por el 14o. Distrito.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE CONSTITUCION.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE CONSTITUCIÓN.
