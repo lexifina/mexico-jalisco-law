@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE NOVIEMBRE DE 2012)
+Artículo 71-Bis. Todo servidor público está obligado a responder las recomendaciones que les presente la Comisión. Cuando las recomendaciones emitidas no sean aceptadas o cumplidas por las autoridades o servidores públicos, éstos deberán fundar, motivar y hacer pública su negativa; además, el Congreso del Estado podrá llamar, a solicitud de (sic) misma Comisión, a las autoridades o servidores públicos responsables para que comparezcan ante dicho órgano legislativo, a efecto de que expliquen el motivo de su negativa.
+Una vez desahogada la comparecencia, el Congreso del Estado enviará a la Comisión el resultado de la misma para que ésta lo integre al expediente correspondiente de la recomendación.
