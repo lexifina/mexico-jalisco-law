@@ -1,5 +1,1 @@
-(ADICIONADO, P.O. 30 DE ENERO DE 2007)
-Art. 142 J. Al que ofrezca, promueva, facilite, entregue o consiga a una persona menor de dieciocho años de edad o a una persona que no tenga capacidad para comprender el significado del hecho, para cualquier forma de explotación, se le impondrán de seis a doce años de prisión y de quinientos a mil quinientos días multa, sin perjuicio de las penas que correspondan por la comisión de otros delitos.
-Las penas que resulten aplicables por los delitos previstos en este artículo se incrementarán:
-I. Hasta una tercera parte, si el delito es cometido en contra de un menor de catorce años de edad o es cometido por un servidor público. En esta último caso, se impondrá además la destitución del empleo, cargo o comisión públicos e inhabilitación para desempeñar otro hasta por un tiempo igual a de la pena de prisión impuesta;
-II. Hasta una mitad, si el delito es cometido en contra de un menor de doce años de edad o se emplee violencia física o moral o cuando el sujeto activo del delito tenga parentesco por consanguinidad, afinidad o civil o habite en el mismo domicilio con la víctima, aunque no existiera parentesco alguno, o sea tutor o curador de la víctima.
+Art. 142 J. (DEROGADO, P.O. 1 DE SEPTIEMBRE DE 2012)
