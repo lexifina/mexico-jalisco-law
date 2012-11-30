@@ -1,4 +1,2 @@
-(ADICIONADO, P.O. 30 DE ENERO DE 2007)
-Art. 142 F. A quien, a cambio de cualquier prestación en dinero, especie o servicios, tenga relaciones sexuales u obtenga la realización de cualquier acto erótico sexual con persona menor de dieciocho años de edad o quien no tenga capacidad para comprender el significado del hecho, se le aplicarán las siguientes sanciones:
-I. De dos a cuatro años de prisión y multa por el equivalente de cien a doscientos días de salario mínimo, cuando la víctima sea menor de dieciocho años pero mayor de quince, siendo este hecho del conocimiento del activo; y
-II. De cuatro a siete años de prisión, y multa por el equivalente de doscientos a quinientos días de salario mínimo, cuando la víctima sea menor de dieciocho años de edad o con quien no tengan capacidad para comprender el significado del hecho.
+(REFORMADO, P.O. 16 DE OCTUBRE DE 2012)
+Art. 142 F. Se impondrán de cuatro a siete años de prisión, y multa por el equivalente de doscientos a quinientos días de salario mínimo, a quien, a cambio de cualquier prestación en dinero, especie o servicios, tenga relaciones sexuales u obtenga la realización de cualquier acto erótico sexual con persona menor de dieciocho años de edad o quien no tenga capacidad para comprender el significado del hecho.
