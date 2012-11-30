@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 30 DE ENERO DE 2007)
-Art. 142.A. Se impondrán de tres a seis años de prisión y multa de cien a doscientos días de salario mínimo, a la persona que por cualquier medio faciliten, provoquen, induzcan o promuevan en un menor de edad o con quien no tenga capacidad para comprender el significado del hecho:
+Art. 142. A. Se impondrán de tres a seis años de prisión y multa de cien a doscientos días de salario mínimo, a la persona que por cualquier medio faciliten, provoquen, induzcan o promuevan en un menor de edad o con quien no tenga capacidad para comprender el significado del hecho:
 I. El hábito de la mendicidad;
 II. El hábito de consumir alcohol, drogas o sustancias similares;
 III. La iniciación ó práctica de la actividad sexual; ó
