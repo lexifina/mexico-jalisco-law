@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 15 DE OCTUBRE DE 2013)
+Art. 154-A. Comete el delito de desaparición forzada de personas el servidor público o integrante de los cuerpos de seguridad pública que prive de la libertad a una o más personas, cualquiera que fuere su forma, seguido de la negativa de reconocer dicha privación de libertad o de informar sobre el paradero de la persona.
+Es sujeto activo del delito de desaparición forzada de personas quien intervenga actuando con la autorización, la ayuda, la aquiescencia o tolerancia directa o indirecta de servidores públicos o de integrantes de seguridad pública.
+Serán igualmente considerados como sujeto activo el particular que prive de la libertad a una o más personas, cualquiera que fuere su forma, seguido de la falta de información o de la negativa a reconocer dicha privación de libertad o de informar sobre el paradero de la persona, aunque en ello no participen servidores públicos en ningún grado
+El delito de desaparición forzada se considera permanente e imprescriptible.

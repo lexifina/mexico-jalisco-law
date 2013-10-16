@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE OCTUBRE DE 2013)
+Art. 154-D. Se sancionará de cinco a diez años de prisión y multa de mil a cuatro mil salarios mínimos además de la inhabilitación para el desempeño de cualquier cargo, empleo o comisión públicos de cinco a diez años, al servidor público que teniendo conocimiento de la comisión del delito de desaparición forzada de personas, no adoptare las medidas necesarias y razonables para evitar su consumación
