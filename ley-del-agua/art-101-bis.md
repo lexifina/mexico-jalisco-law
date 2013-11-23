@@ -1,40 +1,27 @@
-(REFORMADO, P.O. 18 DE AGOSTO DE 2012)
-Artículo 101 Bis. Las cuotas y tarifas estarán integradas por los costos necesarios para garantizar la prestación del servicio, incluirán los costos de operación, administración, conservación, mantenimiento, así como los recursos necesarios para la constitución de un fondo que permita la rehabilitación y mejoramiento de los sistemas, la recuperación del valor actualizado de las inversiones del organismo operador o, en su caso, el servicio de su deuda. Dicho fondo se constituirá y operará de conformidad con las reglas técnicas que apruebe el Ayuntamiento u organismo operador, según sea el caso.
-La recuperación del valor actualizado de las inversiones de infraestructura hidráulica realizadas por los organismos operadores, deberán tomarse en cuenta para incorporarse en la fijación de las tarifas o cuotas respectivas o para su cobro por separado a las directamente beneficiados por las mismas. Se podrán celebrar con los beneficiarios convenios que garanticen la recuperación de la inversión.
-Se exceptúa de lo dispuesto en el párrafo anterior, cuando la recuperación de la inversión se esté efectuando a través de contribuciones de mejoras por obras públicas hidráulicas en el Estado o municipio, o una legislación fiscal similar.
-(NOTA: EL 17 DE JUNIO DE 2013, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA CONTROVERSIA CONSTITUCIONAL 99/2012 DECLARÓ LA INVALIDEZ DEL PÁRRAFO CUARTO DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/expedientes/).
-[En cuanto a los efectos de esta declaración de invalidez ver la tesis jurisprudencial que lleva por rubro y datos de identificación: "CONTROVERSIA CONSTITUCIONAL. CUANDO ES PROMOVIDA POR UN MUNICIPIO, LA SENTENCIA QUE DECLARA LA INVALIDEZ DE UNA NORMA GENERAL ESTATAL, SÓLO TENDRÁ EFECTOS PARA LAS PARTES." (Novena Época, Instancia: Pleno, Fuente: Semanario Judicial de la Federación y su Gaceta, Tomo: IV, Noviembre de 1996, Tesis: P./J. 72/96, Página: 249)]
-SE TOMARÁN EN CUENTA LAS OBSERVACIONES Y SUGERENCIAS QUE REALICEN LOS USUARIOS QUE PARTICIPEN A TRAVÉS DE LOS CONSEJOS TARIFARIOS DE LOS ORGANISMOS OPERADORES A QUE SE REFIERE LA PRESENTE LEY.
-Para la actualización de las cuotas y tarifas se atenderá a los indicadores económicos; salarios, energía eléctrica, combustibles, lubricantes; elementos químicos y materiales en general, en la proporción en que forman parte del presupueste (sic) del organismo operador de acuerdo a la siguiente fórmula:
-Fa = Is X Ps + lee x Pee + ic x Pc + Ig x Pg
-En la que:
-Factor de actualización es = 1 + Fa
-Is = incremento en el periodo por actualizar en sueldos y salarios en porcentaje.
-Ps = porcentaje del presupuesto de operación que representen los sueldos y salarios.
-lee = incremento en el periodo por actualizar en energía eléctrica en porcentaje.
-Pee = porcentaje del presupuesto de operación que representan la energía eléctrica.
-Ic = incremento en el periodo por actualizar en combustibles y lubricantes en general.
-Pc = porcentaje del presupuesto de operación que representen los combustibles y lubricantes.
-Ig = incremento en el período por actualizar elementos químicos y materiales en general
-Pg = porcentaje del presupuesto de operación que representen los elementos químicos y materiales en general.
-En el caso de modificación de las tarifas, esta responderá al análisis detallado de costos y presupuesto.
-(NOTA: EL 17 DE JUNIO DE 2013, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA CONTROVERSIA CONSTITUCIONAL 99/2012 DECLARÓ LA INVALIDEZ DEL PÁRRAFO ÚLTIMO DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/expedientes/).
-[En cuanto a los efectos de esta declaración de invalidez ver la tesis jurisprudencial que lleva por rubro y datos de identificación: "CONTROVERSIA CONSTITUCIONAL. CUANDO ES PROMOVIDA POR UN MUNICIPIO, LA SENTENCIA QUE DECLARA LA INVALIDEZ DE UNA NORMA GENERAL ESTATAL, SÓLO TENDRÁ EFECTOS PARA LAS PARTES." (Novena Época, Instancia: Pleno, Fuente: Semanario Judicial de la Federación y su Gaceta, Tomo: IV, Noviembre de 1996, Tesis: P./J. 72/96, Página: 249)]
-LOS MUNICIPIOS A TRAVÉS DE SUS AYUNTAMIENTOS PODRÁN DETERMINAR SUBSIDIOS PARA PAGO DE LOS SERVICIOS HÍDRICOS A FAVOR DE USUARIOS DEBIDAMENTE TIPIFICADOS POR SUS BAJOS INGRESOS, ESCASOS RECURSOS, O CONDICIONES VULNERABLES, TALES COMO:
-a) Pensionados;
-b) Jubilados;
-c) Discapacitados;
-d) Personas viudas; y
-e) Personas adultas mayores que cuenten con sesenta años o más de edad.
-Los subsidios a que se refiere la fracción anterior:
-a) Se otorgarán en forma casuística y explícita;
-b) No se otorgarán mediante cuotas o tarifas subsidiadas;
-c) Los reglamentos municipales deberán establecer los procedimientos para delimitar su discrecionalidad;
-d) Se determinarán en relación con el uso y consumo que se genere en el predio unifamiliar en donde resida el beneficiario.
-e) Para fines financieros, en su caso, tales subsidios serán considerados como un costo del servicio; y
-(NOTA: EL 17 DE JUNIO DE 2013, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA CONTROVERSIA CONSTITUCIONAL 99/2012 DECLARÓ LA INVALIDEZ DEL INCISO F) DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/expedientes/).
-[En cuanto a los efectos de esta declaración de invalidez ver la tesis jurisprudencial que lleva por rubro y datos de identificación: "CONTROVERSIA CONSTITUCIONAL. CUANDO ES PROMOVIDA POR UN MUNICIPIO, LA SENTENCIA QUE DECLARA LA INVALIDEZ DE UNA NORMA GENERAL ESTATAL, SÓLO TENDRÁ EFECTOS PARA LAS PARTES." (Novena Época, Instancia: Pleno, Fuente: Semanario Judicial de la Federación y su Gaceta, Tomo: IV, Noviembre de 1996, Tesis: P./J. 72/96, Página: 249)]
-F) ESTAS DISPOSICIONES SERÁN OBSERVADAS POR LOS CONSEJOS TARIFARIOS AL APROBAR LAS CUOTAS Y TARIFAS A QUE SE REFIERE LA FRACCIÓN XV DEL ARTÍCULO 2 DE ESTA LEY; (SIC)
+(REFORMADO, P.O. 22 DE NOVIEMBRE DE 2013)
+Artículo 101-Bis. Las cuotas y tarifas deberán ser suficientes para que los Organismos Operadores puedan hacer frente a los costos de la operación, el mantenimiento y administración; la rehabilitación y mejoramiento de la infraestructura existente; la amortización de las inversiones realizadas; los gastos financieros de los pasivos; y las inversiones necesarias para la expansión de la infraestructura.
+Las condiciones anteriores se podrán expresar bajo la siguiente fórmula:
+Tn = (CFn + CVn + CFIn + DAn + FIn) / VDn (II.1)
+donde:
+Tn: tarifa en el año n. Unidad de medida en pesos por metro cúbico: $/m3
+CFn: estimación de los costos fijos del año n. Unidad de medida en pesos: $.
+CVn: estimación de los costos variables del año n. Unidad de medida en pesos: $.
+CFIn: estimación de los costos financieros del año n. Unidad de medida en pesos: $.
+DAn: depreciación y amortización de los activos en el año n. Unidad de medida en pesos: $.
+FIn: fondo de inversión para la ampliación y mejoramiento de los servicios en el año n. Unidad de medida en pesos: $.
+VDn: volumen demandado por la población en el año n. Unidad de medida metros cúbico (sic): m3.
+n: año bajo análisis.
+La determinación de las cuotas y tarifas se hará de acuerdo a la fórmula anterior, previa aprobación del Congreso del Estado a propuesta de los municipios, en la que se deberán considerar los estados financieros y balances de los últimos doce meses a la fecha de la determinación de la tarifa, debidamente aprobados por el órgano de gobierno del Organismo Público Descentralizado del que se trate.
+Para el cálculo de las cuotas y tarifas de cada organismo operador, no se tomarán en cuenta las aportaciones que hagan los gobiernos Estatal, Federal y Municipal, o cualquier otra instancia pública, privada o social, dentro del concepto de Fondo de Inversión.
+Todos los entes establecidos en el artículo 51 de esta Ley deberán aplicar esta fórmula para obtener cuotas o tarifas de acuerdo a los diversos estratos de la población y a los diversos usos identificados en su zona o zonas de cobertura, debiendo sustituir los valores de cada costo derivado de la operación, el mantenimiento y administración de los sistemas; la rehabilitación y mejoramiento de la infraestructura existente; la amortización de las inversiones realizadas; los gastos financieros de los pasivos; y las inversiones necesarias para la expansión de la infraestructura que correspondan a las características del organismo operador en particular, debiendo tomar en cuenta la evolución prevista en las eficiencias física, comercial, operativa y financiera.
+Todos los entes establecidos en el artículo 51 de este cuerpo normativo deberán emitir, con base en la fórmula anterior, las tarifas correspondientes a la prestación de los diferentes servicios:
+I. Abastecimiento de agua potable;
+II. Drenaje;
+III. Recolección, tratamiento y disposición de aguas residuales;
+IV. Incorporación a los servicios;
+V. Manejo y control de aguas pluviales.
+Para la ejecución de obras de infraestructura hidráulica que se requieran para el control de inundaciones y manejo de aguas pluviales la Comisión hará del conocimiento a las Comisiones Tarifarias, comités o ayuntamientos de las obras que se requieran, así como los montos de inversión requeridos para su ejecución a fin de que se consideren para la determinación de la tarifa o del porcentaje de la tarifa destinado a dichas obras.
+Todos los entes establecidos en el artículo 51 de esta Ley podrán tomar en cuenta los tipos y estratificación de usuario para desarrollar estrategias de subsidios cruzados a corto, mediano y largo plazo, o focalizados para su aplicación.
 TÍTULO SÉPTIMO
 De las infracciones y sanciones.
 CAPÍTULO I
