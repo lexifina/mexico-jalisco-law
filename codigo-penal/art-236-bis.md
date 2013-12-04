@@ -6,11 +6,15 @@ I. De dos a cinco años de prisión y multa por el importe de cinco a treinta d�
 II. De tres a ocho años de prisión y multa por el importe de quince a sesenta días de salario, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
 III. De cuatro a once años de prisión y multa por el importe de veinte a noventa días de salario, cuando el valor de lo robado exceda del monto de mil días de salario; y
 IV. De tres a seis años de prisión, cuando no pudiera determinarse el valor de lo robado o, si por su naturaleza, no fuere estimable en dinero.
-(REFORMADO PRIMER PÁRRAFO, P.O. 12 DE JUNIO DE 2003) (F. DE E., P.O. 12 DE JULIO DE 2003)
-B) Si interviene alguna de las calificativas que se consignan en las fracciones V, X, XII, XIV, XV, XVI y XVII del artículo anterior, la pena será:
+(REFORMADO PRIMER PÁRRAFO, P.O. 3 DE DICIEMBRE DE 2013)
+B) Si interviene alguna de las calificativas que se consignan en las fracciones V, X, XII, XIII, XIV, XV, XVI, XVII y XIX del artículo anterior, la pena será:
+(REFORMADA, P.O. 12 DE JUNIO DE 2003)
 I. De cinco a diez años de prisión y multa por el importe de quince a sesenta días de salario, cuando el valor de lo robado no exceda del importe de trescientos setenta días de salario;
+(REFORMADA, P.O. 12 DE JUNIO DE 2003)
 II. De seis a doce años de prisión y multa por el importe de veinte a ochenta días de salario, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
+(REFORMADA, P.O. 12 DE JUNIO DE 2003)
 III. De ocho años seis meses a quince años de prisión y multa por el monto de treinta a cien días de salario, cuando el valor de lo robado exceda del importe de mil días de salario; y
+(REFORMADA, P.O. 12 DE JUNIO DE 2003)
 IV. De cinco años seis meses a nueve años de prisión, cuando no pudiere determinarse el valor de lo robado, o si por su naturaleza, no fuere estimable en dinero.
 (REFORMADO PRIMER PÁRRAFO, P.O. 7 DE OCTUBRE DE 2010)
 C) Si intervienen alguna de las calificativas que se consignan en las fracciones VII, y XI del artículo anterior, la pena será:
