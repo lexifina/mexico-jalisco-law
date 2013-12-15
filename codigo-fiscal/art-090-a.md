@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE DICIEMBRE DE 2013)
+Artículo 90 A.- El plazo para que se configure la prescripción no podrá exceder de diez años contados a partir de que el crédito fiscal pudo ser legalmente exigido, salvo que dicho plazo se encuentre suspendido porque el contribuyente hubiere desocupado su domicilio fiscal, sin haber presentado el aviso correspondiente, o en su caso por los supuestos señalados en los artículos 191 y 192 de este Código.
