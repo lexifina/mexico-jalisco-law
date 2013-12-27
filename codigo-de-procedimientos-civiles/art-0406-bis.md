@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2006)
-ARTICULO 406 bis.- La información que conste en medios electrónicos, ópticos o en cualquier otra tecnología, con la utilización de firma electrónica certificada hará prueba siempre y cuando se haya otorgado en los términos de la Ley de la materia y tendrá el valor a que se refieren los artículos 403 y 406 del presente Código.
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2013)
+ARTICULO 406-BIS.- La información que conste en medios electrónicos, ópticos o en cualquier otra tecnología, con la utilización de firma electrónica en los términos de la Ley estatal aplicable, hará prueba siempre y cuando se haya otorgado en los términos de la Ley de la materia y tendrá el valor a que se refieren los artículos 403 y 406 del presente Código.
