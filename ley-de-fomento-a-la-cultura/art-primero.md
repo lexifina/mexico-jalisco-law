@@ -1,1 +1,0 @@
-ARTICULO PRIMERO. Se modifica el Diverso 18435 que crea la Ley Fomento a la Cultura, con base a las observaciones que formuló el ciudadano Gobernador Constitucional del Estado, ingeniero Alberto Cárdenas Jiménez, en ejercicio de la facultad que le confiere el artículo 33 de la Constitución Política del Estado de Jalisco, para quedar como sigue:
