@@ -1,0 +1,3 @@
+P.O. 14 DE JUNIO DE 2014.
+PRIMERO.- El presente decreto entrará en vigor a partir del día siguiente de la fecha de publicación en el periódico oficial El Estado de Jalisco.
+SEGUNDO.- El Poder Ejecutivo dentro de los 30 días hábiles siguientes, contados a partir de la entrada en vigor del presente decreto, debe emitir las reglas que establecen los requisitos y trámites que deberán cumplir los interesados para hacerse merecedores del estímulo fiscal, así como los referentes a la entrega y transparencia de los recursos; mismo que será observado y aplicado por la Secretaría de Cultura del Estado de Jalisco.
