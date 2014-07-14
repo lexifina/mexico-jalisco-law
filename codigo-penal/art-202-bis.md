@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 8 DE ABRIL DE 2014)
-Art. 202 Bis. Se impondrán de cincuenta a cien días de multa o de treinta a cien jornadas de trabajo a favor de la comunidad, a quien al que (sic) por razones de origen étnico, edad, sexo, embarazo, estado civil, raza, nacionalidad, idioma, religión, ideología, preferencia sexual, condición social o económica, trabajo o profesión, discapacidad, características físicas, estado de salud o cualquier otra causa que atente contra la dignidad humana, limite, anule o genere un menoscabo a los derechos, libertades y seguridad de la persona.
+Art. 202 Bis. Se impondrán de cincuenta a cien días de multa o de treinta a cien jornadas de trabajo a favor de la comunidad, a quien al que por razones de origen étnico, edad, sexo, embarazo, estado civil, raza, nacionalidad, idioma, religión, ideología, preferencia sexual, condición social o económica, trabajo o profesión, discapacidad, características físicas, estado de salud o cualquier otra causa que atente contra la dignidad humana, limite, anule o genere un menoscabo a los derechos, libertades y seguridad de la persona.
 Al reincidente, se le impondrá de uno a tres años de prisión.
 Las mismas penas se impondrán a quien:
 I. Provoque o incite a la discriminación, odio y a la violencia contra una persona o grupo de personas;
