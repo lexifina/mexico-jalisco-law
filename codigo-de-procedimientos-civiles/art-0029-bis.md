@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 30 DE OCTUBRE DE 2010)
+(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE OCTUBRE DE 2010)
 Artículo 29 bis.- La caducidad de la instancia operará de pleno derecho, cualquiera que sea el estado del juicio, desde la notificación del primer auto que se dicte en el mismo hasta antes de la citación para sentencia, si transcurridos ciento ochenta días naturales contados a partir de la notificación de la última determinación judicial no hubiere promoción de alguna de las partes tendiente a la prosecución del procedimiento. Los efectos y formas de su declaración se sujetarán a las normas siguientes:
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 1994)
 I.- La caducidad de la instancia es de orden público y opera por el sólo transcurso del tiempo antes señalado;

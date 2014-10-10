@@ -1,5 +1,5 @@
 P.O. 11 DE ENERO DE 2007.
-DECRETO NUMERO 21746/LVII/06
+DECRETO NÚMERO 21746/LVII/06
 PRIMERO. El presente decreto entrará en vigor noventa días después al de su publicación en el Periódico Oficial "El Estado de Jalisco".
 SEGUNDO. Se deroga el decreto número 14,156 que crea a la Procuraduría para asuntos Indígenas del Gobierno del Estado, sin embargo ésta, seguirá funcionando en tanto se integra y entra en funciones la Comisión.
 TERCERO. El presupuesto de Egresos del Estado para el ejercicio Fiscal 2007 deberá establecer la partida presupuestal asignada a la Comisión Estatal Indígena.

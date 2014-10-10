@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 9 DE OCTUBRE DE 2014)
+Art. 2570 Bis 5.- El inmueble sobre el cual se constituya la hipoteca pensionaria no podrá ser transmitido o enajenado sin la autorización expresa del pensionario, por lo que cualquier acto que afecte al inmueble se declarará nulo de pleno derecho.
+CAPITULO IV
+Disposiciones comunes a las diversas clases de hipotecas
