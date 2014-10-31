@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 18 DE SEPTIEMBRE DE 2004)
-Art. 40 bis 6.- Los datos personales sólo pueden ser utilizados para fines lícitos.
+Art. 40 bis 6.- (DEROGADO, P.O. 30 DE OCTUBRE DE 2014)
