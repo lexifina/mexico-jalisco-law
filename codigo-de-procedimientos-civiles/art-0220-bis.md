@@ -3,3 +3,6 @@ ARTICULO 220 bis.- La ejecución deberá despacharse por cantidad líquida, ente
 (REFORMADA SU DENOMINACIÓN, P.O. 31 DE JULIO DE 1975)
 CAPITULO III.
 De la Separación de Personas como Acto Prejudicial.
+(ADICIONADA, P.O. 25 DE NOVIEMBRE DE 2014)
+Sección Primera
+De la Separación de Cónyuges
