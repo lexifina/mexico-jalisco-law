@@ -1,0 +1,4 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 29 DE NOVIEMBRE DE 2014)
+Art. 693 Bis.- El tutor administrará los bienes del incapaz, cuando éste tenga limitación en la capacidad de ejercicio, en los términos de la sentencia respectiva, a falta de disposición expresa en la sentencia, se estará a lo dispuesto en este capítulo y demás artículos aplicables.
+CAPITULO XI
+Reglas sobre la administración de bienes

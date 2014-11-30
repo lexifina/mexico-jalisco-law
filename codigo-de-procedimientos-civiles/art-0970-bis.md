@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 29 DE NOVIEMBRE DE 2014)
+ARTICULO 970 BIS. Vistos los documentos y dictámenes a que hace referencia el artículo anterior y antes de emitir el fallo, el Juez, deberá sostener hasta tres entrevistas con el presunto incapaz, en las que se abordarán diversos temas y servirán para evaluar de forma directa la diversidad funcional. El presunto incapaz, si así lo desea, podrá ser asistido por la persona de confianza que éste designe.
