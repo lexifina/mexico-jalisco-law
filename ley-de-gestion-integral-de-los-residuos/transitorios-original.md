@@ -18,7 +18,7 @@ Diputada Secretaria
 MARTHA RUT DEL TORO GAYTÁN
 (RÚBRICA)
 En mérito de lo anterior, mando se imprima, publique, divulgue y se le dé el debido cumplimiento.
-Emitido en Palacio de Gobierno, sede del Poder Ejecutivo del Estado Libre y Soberano de Jalisco, a los 09 nueve días del mes febrero (sic) de 2007 dos mil siete.
+Emitido en Palacio de Gobierno, sede del Poder Ejecutivo del Estado Libre y Soberano de Jalisco, a los 09 nueve días del mes (sic) febrero de 2007 dos mil siete.
 El Gobernador Interino del Estado.
 MTRO. GERARDO OCTAVIO SOLÍS GÓMEZ
 (RÚBRICA)
