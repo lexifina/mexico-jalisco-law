@@ -1,15 +1,8 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 18 DE OCTUBRE DE 2012)
-Art. 142 N. Se incrementarán en una tercera parte las penas correspondientes a los delitos contra el desarrollo de la personalidad, cuando:
-I. El sujeto pasivo sea una persona menor de doce años;
-II. El sujeto pasivo sea descendiente o pariente consanguíneo hasta el cuarto grado del sujeto activo;
-III. El sujeto activo tenga la patria potestad, tutela o custodia del sujeto pasivo;
-IV. El sujeto activo se aproveche de lazos afectivos, de confianza, de sumisión o de respeto para cometer el delito;
-V. El sujeto activo cometa algún delito contra el desarrollo de la personalidad sobre el mismo sujeto pasivo en más de una ocasión, y
-VI. El sujeto activo utilice la violencia física o psicológica para cometer el delito.
-(REFORMADA SU DENOMINACIÓN, P.O. 12 DE NOVIEMBRE DE 2013)
-TITULO SEXTO
-REVELACION DE SECRETOS Y LA OBTENCION ILICITA DE INFORMACION
-(REFORMADA SU NUMERACIÓN, P.O. 7 DE DICIEMBRE DE 2004)
-CAPITULO I
-Revelación de secretos
+(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2014)
+Art. 142 N. Se impondrá una pena de 6 meses a 5 cinco años de prisión a quien ejerciendo la patria potestad, tutela, custodia o cuidado y vigilancia, agreda a una persona menor de edad, utilizando la fuerza física, ya sea con o sin objeto contundente o arma, causándole a éste una alteración a su salud, a su integridad física o psicológica.
+Al responsable de este delito se le impondrán, a juicio del Juez, las penas conjuntas o separadas de la pérdida de la custodia que tenga respecto a la víctima, la prohibición de ir a lugar determinado o residir en él y tratamientos psicológicos, reeducativos, integrales, especializados y gratuitos que serán impartidos por instituciones públicas.
+No se considera maltrato infantil el ejercicio del derecho de corrección que prevé el Código Civil del Estado de Jalisco.
+Los agravantes comunes a los delitos contra el desarrollo de la personalidad a que se refiere el artículo 142-Ñ, no son aplicables a este tipo penal.
+(REUBICADO [N. DE E. ANTES CAPITULO VIII], P.O. 20 DE DICIEMBRE DE 2014)
+CAPITULO IX
+Agravantes comunes a los delitos contra el desarrollo de la personalidad

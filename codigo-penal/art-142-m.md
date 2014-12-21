@@ -7,6 +7,6 @@ III. Doce a veinte años de prisión, cuando la víctima sea menor de quince añ
 El delito señalado en la fracción I del párrafo anterior, se perseguirá por querella de la parte ofendida o de su legítimo representante.
 Se entiende por cópula, la introducción total o parcial del miembro viril, en el cuerpo de la víctima, por vía vaginal en su caso, oral o anal.
 Se entiende por cópula equiparada, la introducción total o parcial de cualquier objeto distinto al miembro viril, en el cuerpo de la víctima, por vía vaginal en su caso o anal, con fines eróticos sexuales.
-(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 18 DE OCTUBRE DE 2012)
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 20 DE DICIEMBRE DE 2014)
 CAPITULO VIII
-Agravantes comunes a los delitos contra el desarrollo de la personalidad
+Maltrato Infantil
