@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 2014)
+Artículo 26 A.- Las autoridades fiscales podrán solicitar a los contribuyentes, responsables solidarios o terceros, datos, informes o documentos adicionales, que consideren necesarios para aclarar la información asentada en las declaraciones. Las personas antes mencionadas deberán proporcionar la información solicitada dentro de los quince días siguientes a la fecha en la que surta efectos la notificación de la solicitud correspondiente.
+No se considerará que las autoridades fiscales inician el ejercicio de sus facultades de comprobación, cuando únicamente soliciten los datos, informes y documentos a que se refiere este artículo, pudiendo ejercerlas en cualquier momento.
