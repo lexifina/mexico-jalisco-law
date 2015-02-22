@@ -5,6 +5,8 @@ TERCERO. Las personas físicas o jurídicas privadas o sociales, dentro de los c
 Durante el proceso de adecuación y regularización señalado en el párrafo anterior, tanto las personas físicas o jurídicas, privadas o sociales, como el ayuntamiento que corresponda y el organismo operador podrán solicitar a la comisión la asesoría técnica necesaria para desarrollar dichas actividades.
 Asimismo, la Comisión podrá apoyar a los ayuntamientos para definir las sus (sic) bases para otorgar concesiones, los criterios para la publicación de la convocatoria respectiva y el establecimiento de los requisitos, garantías y otras modalidades que se estimen oportunas.
 CUARTO. Dentro de los doce meses posteriores al día en que entre en vigor esta Ley, tanto los Ayuntamientos como el Poder Ejecutivo del Estado deberán publicar las disposiciones reglamentarias necesarias para la eficaz aplicación y cumplimiento de lo previsto por esta Ley.
+(ADICIONADO, P.O. 21 DE FEBRERO DE 2015)
+QUINTO. Todos los bienes y recursos materiales, financieros, humanos, tecnológicos y de metodología de la Comisión Estatal de Agua y Saneamiento (CEAS), pasarán a formar parte de la Comisión Estatal del Agua de Jalisco (CEA).
 SALÓN DE SESIONES DEL CONGRESO DEL ESTADO
 GUADALAJARA, JALISCO, 31 DE ENERO DE 2007
 Diputado Presidente
