@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIOS PRIMERO Y SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADO, P.O. 25 DE ABRIL DE 2015)
+Art. 154-J. El servidor público que en el ejercicio de sus funciones conozca de un hecho de tortura u otros tratos crueles, inhumanos o degradantes y no lo denuncie de inmediato ante la autoridad correspondiente, se le impondrán de dos a cinco años de prisión, de doscientos a quinientos días de multa e inhabilitación para el desempeño de cualquier empleo, cargo o comisión, hasta por dos tantos del lapso de pena de prisión impuesta, sin perjuicio de lo que establezcan otras disposiciones aplicables.
