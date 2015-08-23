@@ -1,6 +1,6 @@
 P.O. 25 DE ABRIL DE 2015.
 DECRETO NÚMERO 25334/LX/15, POR EL QUE SE REFORMAN LAS FRACCIONES VIII, IX, X, XI, XII, XIII, XIV, XV, XVI, SE ADICIONA LA FRACCIÓN XVII AL ARTÍCULO 27, SE ADICIONA EL CAPÍTULO XII DENOMINADO "DE LA TORTURA", AL TÍTULO SÉPTIMO, DEL LIBRO SEGUNDO, Y SE ADICIONAN LOS ARTÍCULOS 154-H, 154-I, 154-J Y 154-K, AL CÓDIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE JALISCO.
-PRIMERO. EI presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco" en los municipios a que se refieren las fracciones I y II del Decreto número 24864/LX/14.
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco" en los municipios a que se refieren las fracciones I y II del Decreto número 24864/LX/14.
 SEGUNDO. Posteriormente entrará en vigor de conformidad a las fechas establecidas en el mencionado Decreto número 24864/LX/14.
 TERCERO. Se abroga la Ley Estatal para Prevenir y Sancionar la Tortura en los términos de los artículos transitorios primero y segundo del presente Decreto.
 CUARTO. Los procesos iniciados durante la vigencia de la Ley Estatal para Prevenir y Sancionar la Tortura deberán tramitarse bajo las reglas vigentes a su inicio, observando lo dispuesto en el Protocolo de Estambul, hasta que se dicte sentencia que cause ejecutoria. En todo lo que no afecte a los derechos procesales del imputado, particularmente en lo tocante a los derechos de las víctimas, se estará a lo dispuesto en la norma que más proteja a la persona.
