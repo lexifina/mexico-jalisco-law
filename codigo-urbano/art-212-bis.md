@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2015)
+Artículo 212 Bis. En los Centros de Población es responsabilidad de la autoridad estatal encargada de la vialidad y la movilidad, identificar las áreas o puntos conflictivos donde el transporte colectivo de superficie es ineficiente o riesgoso, con la finalidad de realizar acciones urbanísticas de mejoramiento, que den preferencia de paso al transporte colectivo de superficie y transporte escolar.

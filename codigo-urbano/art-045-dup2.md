@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2015)
+Artículo 45. Bis. Los Consejos Regionales de Desarrollo Urbano son los organismos de promoción, participación ciudadana, social, vecinal y de consulta de los Ayuntamientos que conforman una región, de conformidad con la Regionalización Administrativa del Estado, para impulsar la planeación del territorio y el desarrollo urbano regionales.
+Los Consejos Regionales de Desarrollo Urbano están integrados por representantes de los sectores público, privado y social de la región, su presidencia será rotativa cada año entre los presidentes municipales de los Ayuntamientos que integren la región; su integración, organización, funcionamiento y atribuciones se regularán en su Reglamento Interno.

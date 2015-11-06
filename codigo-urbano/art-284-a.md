@@ -1,0 +1,13 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 5 DE NOVIEMBRE DE 2015)
+Artículo 284. A. Quienes proyecten realizar obras de edificación, deberán solicitar ante la Dependencia Municipal la certificación de usos y destinos, para efectos de administrar y controlar la zonificación determinada en los programas y planes municipales de desarrollo urbano; misma que se realizará mediante dos tipos de dictámenes:
+I. El dictamen de usos y destinos, mediante el cual se certificará la clasificación y utilización determinadas para el predio en la zonificación vigente, para los efectos legales de actos o documentos donde se requiera esta información, y
+(REFORMADA, P.O. 5 DE NOVIEMBRE DE 2015)
+II. El dictamen de trazo, usos y destinos específicos fundados en el plan de desarrollo urbano de centro de población y en su caso, en el plan parcial de desarrollo urbano, donde se precisaran las normas y lineamientos para la elaboración del plan de urbanización, el proyecto definitivo de urbanización o el proyecto de edificación, así como las normas a las que se sujetarán las edificaciones afectas al Patrimonio Cultural del Estado.
+(REFORMADO PRIMER PÁRRAFO, P.O. 5 DE NOVIEMBRE DE 2015)
+B. Recibida la solicitud por la Dependencia Municipal, deberá expedir estos dictámenes, teniendo en cuenta las siguientes consideraciones:
+I. Se expedirán a cualquier persona que los solicite, previo pago del derecho que fije la Ley de Ingresos Municipal;
+II. La solicitud expresará los datos generales del predio, así como el nombre, domicilio e identificación del solicitante;
+(REFORMADA, P.O. 5 DE NOVIEMBRE DE 2015)
+III. Estos dictámenes tienen el carácter de certificaciones, tendrán vigencia indefinida y validez legal en tanto no se modifiquen o cancelen los planes o programas de los cuales se deriven; y
+IV. Recibida la solicitud se expedirán los dictámenes solicitados, en un plazo no mayor de una semana.
+Si la Dependencia Municipal no expide los dictámenes en los términos que se establecen en el plazo señalado, el promovente podrá impugnar la negativa ficta, conforme al procedimiento que se indica en el Título Décimo Tercero de este Código.
