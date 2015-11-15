@@ -1,0 +1,8 @@
+P.O. 12 DE NOVIEMBRE DE 2015.
+PRIMERO. El presente Decreto entrará en vigor el día en que entre en vigor la reforma al artículo 53 de la Constitución Política del Estado de Jalisco, y previa su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. El personal que conforma el cuerpo de la Policía Vial de Jalisco, pasará de manera íntegra a depender de la Secretaría de Movilidad. Los derechos laborales de dicho personal deberán ser íntegramente respetados.
+TERCERO. El titular del Poder Ejecutivo deberá girar las instrucciones pertinentes para que se adecúen las disposiciones reglamentarias aplicables.
+CUARTO. Se faculta a la Secretaría de Planeación, Administración y Finanzas para que, en coordinación con la Secretaría de Movilidad y la Fiscalía General del Estado, se realicen las adecuaciones presupuestales y administrativas que sean necesarias para el cumplimiento de este Decreto.
+QUINTO. Hasta en tanto se realicen las adecuaciones correspondientes, continuarán vigentes los nombramientos y demás cargos existentes dentro de la Policía Vial, así como los reglamentos y manuales actualmente aplicables.
+SEXTO. Hasta en tanto se lleven a cabo las reformas a los reglamentos, protocolos, manuales y demás ordenamientos jurídicos o administrativos, cualquier alusión en estos a la Policía Vial, deberá entenderse que depende de la Secretaría de Movilidad.
+SÉPTIMO. El Titular del Poder Ejecutivo deberá instrumentar las acciones necesarias para garantizar, a la brevedad posible, la correspondiente aplicación del examen de control de confianza al titular de la Dirección Operativa de la Policía Vial del Estado de Jalisco.
