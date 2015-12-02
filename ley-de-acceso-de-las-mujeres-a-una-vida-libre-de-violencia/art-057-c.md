@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE DICIEMBRE DE 2015)
+Artículo 57 C. Las personas menores de edad, que requieran el otorgamiento de una orden de protección de emergencia o preventiva podrán ser representadas por la (sic) cualquier autoridad competente, pudiendo ser cualquiera de las siguientes: la Procuraduría de Protección de los Derechos de Niñas, Niños y Adolescentes; el Ministerio Público, o el padre, madre, tutor o familiar en línea recta ascendiente y colateral consanguíneos hasta segundo grado.

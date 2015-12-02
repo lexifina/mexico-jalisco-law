@@ -7,6 +7,6 @@ Estos delitos sólo serán perseguidos por querella del ofendido o de su legíti
 (REFORMADO, P.O. 23 DE SEPTIEMBRE DE 2000)
 TITULO DECIMO SEGUNDO
 DELITOS CONTRA EL ORDEN DE LA FAMILIA
-(ADICIONADO CON EL ARTICULO QUE LO INTEGRA, P.O. 23 DE SEPTIEMBRE DE 2000)
+(REFORMADA SU DENOMINACIÓN, P.O. 1 DE DICIEMBRE DE 2015)
 CAPITULO I
-De la Violencia Intrafamiliar
+De la Violencia Familiar

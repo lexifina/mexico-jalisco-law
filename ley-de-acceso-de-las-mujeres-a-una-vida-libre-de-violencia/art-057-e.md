@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 1 DE DICIEMBRE DE 2015)
+Artículo 57 E. Las y los jueces de primera instancia en materia civil o familiar, emitirán en el ámbito de su competencia las órdenes de protección de naturaleza civil en los términos previstos en el Código de Procedimientos Civiles del Estado.
+Las autoridades jurisdiccionales competentes valorarán las órdenes de protección y la determinación de medidas de protección necesarias para salvaguardar la integridad de las mujeres víctimas de violencia en sus resoluciones o sentencias, con motivo de los juicios o procesos que se sigan en materia civil, familiar o penal.
