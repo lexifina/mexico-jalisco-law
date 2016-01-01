@@ -1,0 +1,6 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2015)
+ARTICULO 68 QUATER.- En los asuntos relacionados con niñas, niños y adolescentes intervendrá la Procuraduría de Protección de Niñas, Niños y Adolescentes con la representación coadyuvante y en suplencia, según sea el caso, sin perjuicio de la intervención que corresponda a la representación social.
+El juez dará vista o citará a la Procuraduría de Protección de Niñas, Niños y Adolescentes, quedando ésta facultada en juicio para recabar, ofrecer, desahogar, objetar pruebas; interponer y continuar recursos e incidentes, formular alegatos y en general solicitar al Juzgador la realización de todos los actos procesales para la continuación del juicio.
+La Procuraduría de Protección de Niñas, Niños y Adolescentes actuará de manera directa por conducto de agentes, o de delegados institucionales, de conformidad a la legislación estatal y general de los Derechos de Niñas, Niños y Adolescentes, Código de Asistencia Social y el Código Civil.
+El Juez, en todos los procedimientos en donde participen niñas, niños y adolescentes, ordenará notificar a la Procuraduría de Protección de Niñas, Niños y Adolescentes, para que haga valer lo que a su representación corresponda.

@@ -1,2 +1,7 @@
-(REFORMADO, P.O. 25 DE NOVIEMBRE DE 2014)
-ARTICULO 721 BIS.- En los asuntos de patria potestad, guarda y custodia y Régimen de Visitas y Convivencia, el Juez de oficio o a petición de parte, dictará las medidas que considere adecuadas para respetar la dignidad del menor y el ejercicio pleno de sus derechos, cuidando siempre que no se comprometa la seguridad física y el desarrollo emocional del mismo.
+(REFORMADO, P.O. 5 DE SEPTIEMBRE DE 2015)
+ARTICULO 721 BIS.- En los asuntos de patria potestad, guarda y custodia y Régimen de Visitas y Convivencia, el Juez de oficio o a petición de parte, dictará las medidas que considere adecuadas para respetar la dignidad de niñas, niños y adolescentes y el ejercicio pleno de sus derechos, cuidando siempre que no se comprometa la seguridad física y el desarrollo emocional de los mismos.
+En caso de visitas y convivencia asistida o supervisada por institución pública el Juez determinará según la circunstancia de cada caso, los términos de la visita y convivencia, así como la frecuencia con la que los padres deberán recibir la supervisión; o, por excepción, dictará la visita asistida o supervisada, en el interior de institución pública.
+En ambos casos dictará las medidas que estime convenientes para restablecer y salvaguardar los derechos de convivencia de las niñas, niños y adolescentes.
+Si hubiera temor fundado de sustracción de la niña, niño o adolescente por alguno de sus padres, el Juez dictará medidas que considere para salvaguardar el interés superior de la niñez.
+Las medidas podrán ser levantadas en cualquier momento, previo dictamen que certifique la viabilidad de las visitas y convivencia, o en su caso, la guarda y custodia compartida, emitida por la Procuraduría de Protección de Niñas, Niños y Adolescentes.
+En todos los casos escuchará a la Procuraduría de Protección de Niñas, Niños y Adolescentes.

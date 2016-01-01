@@ -1,4 +1,5 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
-(ADICIONADO, P.O. 29 DE ABRIL DE 2008)
-Artículo 5 Bis.- Los conflictos en los que se cuestionen derechos de niños, adolescentes o incapaces, podrán someterse a los métodos alternos por conducto de quienes ejerzan la patria potestad o tutela.
-En los convenios que pongan fin al conflicto se notificará al agente de la Procuraduría Social cuando las peticiones sometidas a los métodos alternos puedan afectar intereses públicos, versen sobre la persona o bienes de menores o incapaces, o cuando tengan relación con los derechos o bienes de ausentes, a fin de que manifieste las consideraciones que estime pertinentes.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 5 DE SEPTIEMBRE DE 2015)
+Artículo 5 Bis.- Los conflictos en los que se cuestionen derechos de niñas, niños y adolescentes, así como de incapaces, podrán someterse a los métodos alternos por conducto de quienes ejerzan la representación originaria o en suplencia, patria potestad o tutela, de conformidad a lo previsto en la legislación general y estatal de los Derechos de Niñas, Niños y Adolescentes, y en la legislación civil.
+Tratándose de derechos de niñas, niños y adolescentes, se escuchará a la Procuraduría de Protección de Niñas, Niños y Adolescentes para efectos de la representación coadyuvante.
+En los convenios que pongan fin al conflicto se notificará al agente de la Procuraduría Social cuando las peticiones sometidas a los métodos alternos puedan afectar intereses públicos o cuando tengan relación con los derechos o bienes de personas adultas incapaces o ausentes, a fin de que manifieste las consideraciones que estime pertinentes.
