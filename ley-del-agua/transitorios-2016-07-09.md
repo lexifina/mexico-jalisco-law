@@ -1,0 +1,3 @@
+P.O. 9 DE JULIO DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO 25852/LXI/16 QUE REFORMA LOS ARTÍCULOS 14, PRIMER PÁRRAFO, 20, FRACCIÓN II, 23, FRACCIONES XX Y XXIV, 25, FRACCIÓN III, INCISOS A), C), E) Y F), 92 Y 105, TERCER PÁRRAFO, DE LA LEY DEL AGUA PARA EL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial El Estado de Jalisco.

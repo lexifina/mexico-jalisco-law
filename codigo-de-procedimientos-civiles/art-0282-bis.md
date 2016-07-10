@@ -19,5 +19,7 @@ De no ser posible conciliar los intereses de las partes, porque así se hubiere 
 La resolución que aprueba el convenio no admite recurso, la que la niegue, será apelable en ambos efectos.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 1994)
 La aprobación y ejecución del convenio en su caso, no estará sujeto al pago de ningún impuesto o derecho de índole estatal.
+(ADICIONADO, P.O. 9 DE JULIO DE 2016)
+La audiencia de conciliación no será obligatoria en los supuestos de los artículos 389, 404, fracciones IV y XI, 574, fracción I y 598, fracción IV, del Código Civil del Estado de Jalisco, para tal efecto, las partes o su representante legal deberán manifestar bajo protesta de decir verdad tener temor de nueva violencia en su contra. En este caso se tendrá como causa justificable para efectos del párrafo segundo del presente artículo.
 CAPITULO II.
 Reglas Generales de la Prueba.
