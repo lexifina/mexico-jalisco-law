@@ -1,9 +1,8 @@
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO PRIMER PÁRRAFO, P.O. 8 DE ABRIL DE 2014)
 ARTICULO 282 BIS.- Contestada que sea la demanda y, en su caso, la reconvención, el juez de oficio deberá citar a las partes a una audiencia conciliatoria que se verificará por una sola vez dentro de los quince días siguientes, sin que se suspenda el procedimiento ni los términos que estén corriendo.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(REFORMADO, P.O. 8 DE ABRIL DE 2014)
-Al citar a las partes a esta audiencia, se les apercibirá que, en caso de no asistir con justa causa, se les impondrá una multa hasta por el equivalente a ciento veinte días de salario mínimo. Las partes deberán comparecer personalmente o a través de representante facultado para cumplimentar el fin de la audiencia.
+(REFORMADO, P.O. 11 DE OCTUBRE DE 2016)
+Al citar a las partes a esta audiencia, se les apercibirá que, en caso de no asistir con justa causa, se les impondrá una multa hasta por el equivalente a ciento veinte veces el valor diario de la Unidad de Medida y Actualización. Las partes deberán comparecer personalmente o a través de representante facultado para cumplimentar el fin de la audiencia.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 1994)
 La audiencia la presidirá el Secretario Conciliador o quien haga sus veces, el que deberá cuidar siempre que se mantenga el buen orden y previa identificación de los comparecientes, exhortará a las partes a conciliar sus intereses y llegar a un convenio.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 1994)

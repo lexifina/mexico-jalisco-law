@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 27 DE DICIEMBRE DE 2011)
-Art. 179 Bis. Al ascendiente que ejerza la patria potestad o al que tenga a su cargo la custodia de un menor de dieciocho años, aunque ésta no haya sido declarada, que ilegítimamente lo entregue a otro para su custodia a cambio de un beneficio económico, se le aplicará pena de prisión de cuatro a diez años y multa por el importe de cuarenta a ciento veinte días de salario.
+(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE OCTUBRE DE 2016)
+Art. 179 Bis. Al ascendiente que ejerza la patria potestad o al que tenga a su cargo la custodia de un menor de dieciocho años, aunque ésta no haya sido declarada, que ilegítimamente lo entregue a otro para su custodia a cambio de un beneficio económico, se le aplicará pena de prisión de cuatro a diez años y multa por el importe de cuarenta a ciento veinte veces el valor diario de la Unidad de Medida y Actualización.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 2011)
 La misma pena a que se refiere el párrafo anterior, se les impondrá a quien reciba al menor y también al tercero que lleve a cabo la entrega de éste a cambio de un beneficio económico. Si el tercero a que se hace mención tiene carácter de directivo de algún organismo a quien corresponda la custodia del menor, se le aplicarán además la pena de destitución y la inhabilitación definitiva para ocupar un cargo similar o en su caso suspensión en el ejercicio de su profesión u oficio hasta por diez años.
 (ADICIONADO, P.O. 14 DE AGOSTO DE 1984)

@@ -24,12 +24,14 @@ Para los efectos de esta fracción, los contribuyentes presentarán declaración
 VI. Están exentos del pago de este impuesto:
 a) La Federación, el Estado y los municipios;
 b) Los contratos de construcción que celebren las empresas paraestatales y organismos descentralizados;
-(REFORMADO, P.O. 23 DE AGOSTO DE 2012)
-c) Los contratos de construcción o financiamientos relativos a la edificación de viviendas de interés social, ubicadas en el cajón salarial menor a 2 veces el salario mínimo, y
+(REFORMADO, P.O. 11 DE OCTUBRE DE 2016)
+c) Los contratos de construcción o financiamiento relativos a la edificación de viviendas de interés social, ubicadas en el cajón salarial menor a 2 veces el valor diario de la Unidad de Medida y Actualización; y
 (REFORMADO, P.O. 23 DE AGOSTO DE 2012)
 d) La realización de actos o contratos, cuando su objeto sea la construcción, reconstrucción y ampliación de inmuebles destinados a viviendas de interés social, unifamiliar y de tipo popular, según las definiciones previstas en la Ley de Ingresos del municipio que corresponda; en caso de no tenerla, se sujetará a la siguiente definición:
-1. Se entiende por vivienda de interés social aquella cuyo valor catastral no exceda de quince salarios mínimos generales vigentes, elevados al año, en el área geográfica donde se localice el inmueble, y
-2. Se entiende por vivienda popular aquella cuyo valor catastral no exceda de veinticinco salarios mínimos generales vigentes, elevados al año, en el área geográfica donde se localice el inmueble, y
+(REFORMADO, P.O. 11 DE OCTUBRE DE 2016)
+1. Se entiende por vivienda de interés social aquella cuyo valor catastral no exceda de quince veces el valor diario de la Unidad de Medida y Actualización, elevados al año en el área geográfica donde se localice el inmueble; y
+(REFORMADO, P.O. 11 DE OCTUBRE DE 2016)
+2. Se entiende por vivienda popular aquella cuyo valor catastral no exceda de veinticinco veces el valor diario de la Unidad de Medida y Actualización, elevados al año, en el área geográfica donde se localice el inmueble; y
 (REFORMADA [N. DE E. REPUBLICADA], P.O. 2 DE DICIEMBRE DE 2014)
 VII. Las personas físicas o morales a las que se les lleve a cabo una auditoría ambiental por parte de la Secretaría de Medio Ambiente y Desarrollo Territorial, misma que deberá emitir el dictamen técnico respectivo sobre la procedencia de la solicitud para la obtención de estímulos fiscales en actividades de prevención y disminución de la contaminación ambiental, de conformidad con la Ley Estatal del Equilibrio Ecológico y la Protección al Ambiente; o bien, que la dirección o departamento de ecología o medio ambiente del municipio de que se trate, lleve a cabo una inspección ambiental a dichas personas y como resultado de la misma se obtenga la aprobación del municipio respectivo de este estímulo fiscal por actividades de prevención y disminución de la contaminación ambiental, conforme al reglamento de ecología o medio ambiente municipal correspondiente; podrán ser beneficiados en la ley de ingresos correspondiente con la aplicación de una tarifa de factor 0.4 sobre el monto del impuesto o la aplicación de la tarifa que se establezca en la ley de ingresos correspondiente.
 Los notarios o quienes hagan sus veces, los registradores y las autoridades, no expedirán testimonios, ni registrarán o darán trámite a actos o contratos en que intervengan, o documentos que se les presenten, hasta que sea pagado el impuesto que se cause.

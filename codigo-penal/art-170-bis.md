@@ -1,5 +1,5 @@
-(ADICIONADO, P.O. 12 DE JUNIO DE 2003)
-Art. 170 Bis. Se impondrán de tres a nueve años de prisión y multa por el equivalente de doscientos a cuatrocientos días de salario mínimo general vigente en la época y área geográfica en que se cometa el delito, al que, sin consentimiento de quien esté facultado para ello:
+(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE OCTUBRE DE 2016)
+Art. 170-Bis. Se impondrán de tres a nueve años de prisión y multa por el equivalente de doscientos a cuatrocientas veces el valor diario de la Unidad de Medida y Actualización vigente en la época y área geográfica en que se cometa el delito, al que, sin consentimiento de quien esté facultado para ello:
 I. Produzca, imprima, enajene, distribuya, altere o falsifique, aún gratuitamente, adquiera, utilice, posea o detente, sin tener derecho a ello, boletos, contraseñas, fichas, tarjetas u otros documentos que no estén destinados a circular y sirvan exclusivamente para identificar a quien tiene derecho a exigir la prestación que en ellos se consigna, siempre que estos delitos no sean de competencia federal;
 II. Altere, copie o reproduzca, indebidamente, los medios de identificación electrónica de boletos, contraseñas, fichas u otros documentos a los que se refiere la fracción I de este artículo;
 (F. DE E., P.O. 12 DE JULIO DE 2003)

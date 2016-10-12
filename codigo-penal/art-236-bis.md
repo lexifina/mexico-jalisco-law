@@ -2,25 +2,31 @@
 Art. 236 Bis. Al responsable del delito de robo calificado se le sancionará de acuerdo con las reglas que se consignan en los siguientes apartados:
 (REFORMADO PRIMER PÁRRAFO, P.O. 12 DE JUNIO DE 2003)
 A) Si interviene alguna de las calificativas que se consignan en las fracciones I, II, III, IV, VI y VIII del artículo anterior, la pena será:
-I. De dos a cinco años de prisión y multa por el importe de cinco a treinta días de salario, cuando el valor de lo robado no exceda de trescientos sesenta días de salario;
-II. De tres a ocho años de prisión y multa por el importe de quince a sesenta días de salario, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
-III. De cuatro a once años de prisión y multa por el importe de veinte a noventa días de salario, cuando el valor de lo robado exceda del monto de mil días de salario; y
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+I. De dos a cinco años de prisión y multa por el importe de cinco a treinta veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado no exceda de trescientas sesenta veces el valor diario de la Unidad de Medida y Actualización;
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+II. De tres a ocho años de prisión y multa por el importe de quince a sesenta veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+III. De cuatro a once años de prisión y multa por el importe de veinte a noventa veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado exceda del monto de mil veces el valor diario de la Unidad de Medida y Actualización; y
 IV. De tres a seis años de prisión, cuando no pudiera determinarse el valor de lo robado o, si por su naturaleza, no fuere estimable en dinero.
 (REFORMADO PRIMER PÁRRAFO, P.O. 3 DE DICIEMBRE DE 2013)
 B) Si interviene alguna de las calificativas que se consignan en las fracciones V, X, XII, XIII, XIV, XV, XVI, XVII y XIX del artículo anterior, la pena será:
-(REFORMADA, P.O. 12 DE JUNIO DE 2003)
-I. De cinco a diez años de prisión y multa por el importe de quince a sesenta días de salario, cuando el valor de lo robado no exceda del importe de trescientos setenta días de salario;
-(REFORMADA, P.O. 12 DE JUNIO DE 2003)
-II. De seis a doce años de prisión y multa por el importe de veinte a ochenta días de salario, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
-(REFORMADA, P.O. 12 DE JUNIO DE 2003)
-III. De ocho años seis meses a quince años de prisión y multa por el monto de treinta a cien días de salario, cuando el valor de lo robado exceda del importe de mil días de salario; y
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+I. De cinco a diez años de prisión y multa por el importe de quince a sesenta veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado no exceda del importe de trescientos setenta veces el valor diario de la Unidad de Medida y Actualización;
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+II. De seis a doce años de prisión y multa por el importe de veinte a ochenta veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+III. De ocho años seis meses a quince años de prisión y multa por el monto de treinta a cien veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado exceda del importe de mil veces el valor diario de la Unidad de Medida y Actualización; y
 (REFORMADA, P.O. 12 DE JUNIO DE 2003)
 IV. De cinco años seis meses a nueve años de prisión, cuando no pudiere determinarse el valor de lo robado, o si por su naturaleza, no fuere estimable en dinero.
 (REFORMADO PRIMER PÁRRAFO, P.O. 7 DE OCTUBRE DE 2010)
 C) Si intervienen alguna de las calificativas que se consignan en las fracciones VII, y XI del artículo anterior, la pena será:
-I. De seis a once años de prisión y multa por el importe de veinte a ochenta días de salario, cuando el valor de lo robado no exceda del monto de trescientos sesenta días de salario;
-II. De siete años seis meses a trece años de prisión y multa por el importe de treinta a cien días de salario, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
-III. De nueve a quince años de prisión y multa por el importe de cuarenta a ciento veinte días de salario, cuando el valor de lo robado exceda del monto de mil días de salario;
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+I. De seis a once años de prisión y multa por el importe de veinte a ochenta veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado no exceda del monto de trescientos sesenta veces el valor diario de la Unidad de Medida y Actualización;
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+II. De siete años seis meses a trece años de prisión y multa por el importe de treinta a cien veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado exceda del monto señalado en la fracción anterior, pero no del que se establece en la siguiente;
+(REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
+III. De nueve a quince años de prisión y multa por el importe de cuarenta a ciento veinte veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado exceda del monto de mil veces el valor diario de la Unidad de Medida y Actualización;
 IV. De seis a diez años de prisión, cuando no pudiere determinarse el valor de lo robado, o si por su naturaleza, no fuere estimable en dinero.
 En todos los casos de robo para estimar su cuantía o determinar que no es estimable en dinero, se atenderá únicamente al valor intrínseco de la cosa robada, fijado primordialmente por Perito; y
 (ADICIONADA, P.O. 5 DE MARZO DE 1998)
