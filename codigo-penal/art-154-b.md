@@ -1,7 +1,7 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 11 DE OCTUBRE DE 2016)
 Art. 154-B. Se impondrá una pena de doce a cuarenta años de prisión y multa de seiscientos a mil veces el valor diario de la Unidad de Medida y Actualización a quien cometa el delito de desaparición forzada de personas.
-(ADICIONADO, P.O. 15 DE OCTUBRE DE 2013)
-Se incrementará la pena hasta en una tercera parte cuando la víctima del delito sea menor de edad, mujer, persona con discapacidad, indígena o persona de la tercera edad.
+(REFORMADO, P.O. 20 DE DICIEMBRE DE 2016)
+Se incrementará la pena hasta en una tercera parte cuando la víctima del delito sea menor de edad, mujer, persona con discapacidad, indígena, persona de la tercera edad o periodista con motivo de su actividad como tal.
 (ADICIONADO, P.O. 15 DE OCTUBRE DE 2013)
 Si dentro de los cinco días siguientes a su detención, se diera la liberación de la víctima, la pena aplicable será de seis a doce años de prisión, sin perjuicio del concurso de delitos.
 (ADICIONADO, P.O. 15 DE OCTUBRE DE 2013)
