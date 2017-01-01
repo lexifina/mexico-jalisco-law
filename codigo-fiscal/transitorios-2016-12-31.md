@@ -1,0 +1,6 @@
+P.O. 31 DE DICIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO 26209/LXI/16 QUE REFORMA LOS ARTÍCULOS 22, 41, 45, 47, 59, 68, 75, 76, 77, 94, 95, 98, 99, 100, 103, 108, 108 A, 141, Y 151; Y SE ADICIONA EL ARTÍCULO 31 C, AL CÓDIGO FISCAL DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto, entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. Todos los procedimientos que a la fecha de entrada en vigor del presente Decreto se encuentren en proceso, serán tramitados hasta su conclusión en los términos de las disposiciones del Código Fiscal vigente en su inicio.
+TERCERO. Se derogan las disposiciones que se opongan a la aplicación y cumplimiento del presente Decreto.
+CUARTO. Las reformas a las disposiciones relativas a las notificaciones mediante buzón tributario, previstas en los artículos 94 fracción I y 95 de éste Código, entrarán en vigor a partir del 02 de Enero de 2018. El diferimiento en la aplicación de la norma, no incluye las demás modalidades de notificación previstas en el numeral 94 de referencia. La Secretaría de Planeación, Administración y Finanzas, podrá emitir reglas de carácter general, para facilitar y precisar los procedimientos relativos al buzón tributario enunciado en los artículos ya mencionados, incluso para postergar el inicio de vigencia de las reformas a dichos preceptos.
