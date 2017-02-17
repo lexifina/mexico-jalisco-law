@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 18 DE OCTUBRE DE 2012)
 Art. 142 M. A quien tenga cópula o cópula equiparada, con una persona menor de edad o en una persona que no tenga la capacidad de comprender el significado de las cosas o de resistir el hecho, se le impondrá una pena de:
 I. Tres meses a cinco años de prisión, cuando la víctima tenga entre quince y menos de dieciocho años de edad y el acto se realice con su consentimiento por medio de la seducción, la cual se presume salvo prueba en contrario, o por medio del engaño;

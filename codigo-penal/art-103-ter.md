@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO PRIMER PÁRRAFO, P.O. 27 DE AGOSTO DE 2015)
 Art. 103 Ter. La reparación del daño en casos de abuso sexual infantil y violación, comprenderá además del daño moral a que alude la fracción III del artículo 102 de este Código, el pago de alimentos a la mujer y al hijo, si lo hubiere.
 (ADICIONADO, P.O. 27 DE SEPTIEMBRE DE 2014)

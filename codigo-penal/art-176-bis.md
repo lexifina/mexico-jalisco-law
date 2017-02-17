@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, P.O. 27 DE MAYO DE 2008)
 Art. 176 Bis. Comete el delito de hostigamiento sexual el que con fines o móviles lascivos asedie u hostigue sexualmente a otra persona de cualquier sexo, valiéndose de su posición jerárquica o de poder, derivada de sus relaciones laborales, docentes, religiosas, domésticas, o cualquier otra, que implique subordinación de la víctima, al responsable se le impondrán de dos a cuatro años de prisión.
 Comete el delito de acoso sexual el que con fines o móviles lascivos asedie o acose sexualmente a otra persona de cualquier sexo, al responsable se le impondrá sanción de uno a cuatro años de prisión.

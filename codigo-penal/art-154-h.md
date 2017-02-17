@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIOS PRIMERO Y SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, P.O. 25 DE ABRIL DE 2015)
 Art. 154-H. Comete el delito de tortura el servidor público que realice cualquier acto u omisión por el cual se inflija a una persona dolores o sufrimientos físicos o mentales u otros tratos crueles, inhumanos o degradantes con fines de investigación, como medio intimidatorio, como castigo personal, como medida preventiva, como pena o con cualquier otro fin.
 Se entenderá también como tortura la aplicación sobre una persona de cualquier acto u omisión que persiga o conduzca a disminuir o anular la personalidad de la víctima, su capacidad física o mental, aunque no le cause dolor físico o angustia psíquica.

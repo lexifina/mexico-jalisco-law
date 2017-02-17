@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 27 DE SEPTIEMBRE DE 2014)
 Art. 102 Bis. Están obligados a reparar el daño, en los términos de este capítulo, los siguientes:
 I. Los ascendientes, por las infracciones penales de sus descendientes que se hallasen bajo su patria potestad;

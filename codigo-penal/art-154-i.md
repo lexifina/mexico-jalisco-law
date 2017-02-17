@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIOS PRIMERO Y SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, P.O. 25 DE ABRIL DE 2015)
 Art. 154-I. La pena señalada en el artículo anterior se aumentará en una tercera parte cuando concurra cualquiera de las siguientes circunstancias:
 I. Que en la comisión del hecho se incluyan actos que impliquen delitos contra la seguridad y la libertad sexual de cualquier especie;
