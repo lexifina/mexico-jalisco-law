@@ -6,5 +6,3 @@ CUARTO. Treinta días posteriores a la entrada en vigor del presente decreto, la
 QUINTO. Todos los asuntos que se encuentren en etapa de averiguación previa, proceso, hayan sido sentenciados o se encuentren en la ejecución de sentencia por delitos relacionados con el presente decreto, seguirán rigiéndose por las normas vigentes anteriores a la entrada en vigor del presente decreto.
 SEXTO. La constitución de la Comisión Interinstitucional deberá realizarse en un plazo máximo de 90 días naturales a partir de la entrada en vigor de la ley; así como la designación del Secretario Técnico de ésta.
 La Comisión Interinstitucional deberá aprobar en un plazo máximo de sesenta días naturales a partir de su constitución el Programa Estatal para Prevenir, Combatir y Erradicar la Trata de personas y remitir a la Secretaria General de Gobierno para su publicación.
-P.O. 8 DE SEPTIEMBRE DE. 2012.
-ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial El Estado de Jalisco.
