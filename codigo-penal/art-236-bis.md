@@ -31,5 +31,7 @@ IV. De seis a diez años de prisión, cuando no pudiere determinarse el valor de
 En todos los casos de robo para estimar su cuantía o determinar que no es estimable en dinero, se atenderá únicamente al valor intrínseco de la cosa robada, fijado primordialmente por Perito; y
 (ADICIONADA, P.O. 5 DE MARZO DE 1998)
 V. De cinco a 18 años de prisión y hasta mil días de multa. También podrá aplicársele la prohibición de ir a lugar determinado o vigilancia de la autoridad, hasta por un término igual al de la sanción privativa de la libertad impuesta.
-(REFORMADO, P.O. 7 DE OCTUBRE DE 2010)
-D) De nueve a veinte años de prisión y hasta mil días de multa, cuando intervenga la calificativa que se consigna en la fracción IX o cuando concurran dos o más de las calificativas enunciadas en el artículo 236, independientemente del monto de lo robado; cuando concurra entre las calificativas la IX antes referida, se incrementarán las penas hasta una tercera parte más de la que resulte aplicable.
+(REFORMADO, P.O. 4 DE MARZO DE 2017)
+D) Si interviene la calificativa que se consigna en la fracción IX del artículo anterior, la pena será de nueve a veinte años de prisión y multa por el importe de sesenta a ciento cincuenta veces la Unidad de Medida y Actualización, sin importar el valor del robo.
+(REFORMADO [N. DE E. ADICIONADO], P.O. 4 DE MARZO DE 2017)
+Cuando concurran dos o más calificativas se sancionará con la calificativa que amerite sanción más alta.
