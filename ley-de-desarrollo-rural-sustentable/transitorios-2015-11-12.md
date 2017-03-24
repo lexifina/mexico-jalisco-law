@@ -1,7 +1,7 @@
 P.O. 12 DE NOVIEMBRE DE 2015.
 PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial El Estado de Jalisco.
 SEGUNDO. La Secretaría de Desarrollo Rural gestionará ante la Secretaría de Planeación, Administración y Finanzas, la inclusión en el proyecto de Ley de Ingresos del Gobierno del Estado para el ejercicio fiscal 2016, los conceptos necesarios para la debida implementación de la Credencial Única Agroalimentaria.
-(REFORMADO, P.O. 27 DE OCTUBRE DE 2016)
-TERCERO. Para efectos de la implementación de la Credencial Única Agroalimentaria, el Ejecutivo Estatal mediante acuerdo determinará los plazos para la inscripción de las personas físicas o jurídicas dedicadas a las actividades reguladas en la Ley de Desarrollo Rural Sustentable y demás leyes aplicables, tendrán un plazo hasta el día 31 de diciembre del año 2016 para quedar debidamente inscritas en el Registro y obtener su "Credencial Única Agroalimentaria".
+(REFORMADO, P.O. 23 DE MARZO DE 2017)
+TERCERO. Para efectos de la implementación de la Credencial Única Agroalimentaria, las personas dedicadas a las actividades reguladas en la Ley de Desarrollo Rural Sustentable y demás leyes aplicables, tendrán hasta el día 31 de julio del año 2017 para quedar debidamente inscritas en el Registro y obtener su Credencial Única Agroalimentaria.
 CUARTO. La Ley de Ingresos del Gobierno del Estado para el ejercicio fiscal de 2016, deberá establecer un descuento para aquellas personas físicas o jurídicas dedicadas a las actividades reguladas en la Ley de Desarrollo Rural Sustentable y demás leyes aplicables, que deseen cambiar su credencial vigente por la Credencial Única Agroalimentaria. Dicho descuento será en proporción al tiempo de vigencia que tengan las credenciales cuya renovación se lleve a cabo.
 QUINTO. Para efectos de este decreto, las credenciales únicas agroalimentarias que se expidan durante el año 2015 tendrán vigencia por tres años.
