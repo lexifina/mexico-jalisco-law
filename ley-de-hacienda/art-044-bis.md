@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 14 DE JUNIO DE 2014)
-Artículo 44 bis. Los contribuyentes que otorguen mecenazgos para la creación, mantenimiento y promoción cultural, sin fines de lucro, de autores jaliscienses, podrán aplicar una exención, contra el pago del Impuesto Sobre Nóminas a su cargo, por una cantidad equivalente al 60% del apoyo previamente acreditado, conforme a lo siguiente:
+Artículo 44 Bis. Los contribuyentes que otorguen mecenazgos para la creación, mantenimiento y promoción cultural, sin fines de lucro, de autores jaliscienses, podrán aplicar una exención, contra el pago del Impuesto Sobre Nóminas a su cargo, por una cantidad equivalente al 60% del apoyo previamente acreditado, conforme a lo siguiente:
 I. Solo podrá accederse a este incentivo fiscal si el contribuyente se encuentra al corriente del pago de las demás obligaciones tributarias que esta ley le establezca;
 (F. DE E., P.O. 26 DE JULIO DE 2014)
 II. El monto total del estímulo fiscal anual a distribuir no excederá del (0.006%) del total del Presupuesto de Egresos del Gobierno del Estado, aprobado por el Congreso;
