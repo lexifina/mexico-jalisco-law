@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE CONTROL DE CONFIANZA DEL ESTADO DE JALISCO Y SUS MUNICIPIOS
 Ley publicada en la Sección V del Periódico Oficial del Estado de Jalisco, el sábado 21 de julio de 2012.
 Al margen un sello que dice: Gobierno de Jalisco. Poder Ejecutivo. Secretaría General de Gobierno. Estados Unidos Mexicanos.
