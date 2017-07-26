@@ -1,0 +1,9 @@
+P.O. 26 DE JULIO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO 26420/LXI/17 QUE EXPIDE LA LEY DE PROTECCIÓN DE DATOS PERSONALES EN POSESIÓN DE SUJETOS OBLIGADOS DEL ESTADO DE JALISCO Y SUS MUNICIPIOS; Y REFORMA Y DEROGA DIVERSOS ARTÍCULOS DE LA LEY DE TRANSPARENCIA Y ACCESO A LA INFORMACIÓN PÚBLICA DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+PRIMERO. La presente Ley entrará en vigor el mismo día de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. En el Presupuesto de Egresos del Estado para el ejercicio Fiscal 2018, se deberán establecer las previsiones presupuestales necesarias para la operación de la presente Ley.
+TERCERO. Se derogan todas aquellas disposiciones en materia de protección de datos personales en posesión de los sujetos obligados en el ámbito estatal, de carácter estatal y municipal, que contravengan lo dispuesto por la presente Ley.
+CUARTO. Los procedimientos iniciados antes de la entrada en vigor de la presente Ley se sustanciarán hasta su conclusión conforme a la Ley de Transparencia y Acceso a la Información Pública del Estado de Jalisco y sus municipios.
+QUINTO. El Instituto de Transparencia, Información Pública y Protección de Datos Personales del Estado de Jalisco deberá expedir los lineamientos, parámetros, criterios y demás disposiciones de las diversas materias a que se refiere la presente Ley, dentro de un año siguiente a la entrada en vigor de esta reforma.
+SEXTO. Los sujetos responsables deberán observar lo dispuesto en el Título Segundo, Capítulo II de la presente Ley, a más tardar un año después de la entrada en vigor de la presente reforma.
+SÉPTIMO. Los sujetos responsables expedirán sus avisos de privacidad en los términos previstos en la presente Ley y demás disposiciones aplicables, a más tardar tres meses después de la entrada en vigor de este decreto.
