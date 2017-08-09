@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE AGOSTO DE 2017)
+Artículo 2 Bis. El gobierno del Estado de Jalisco y los Municipios procurarán, con el apoyo del Gobierno Federal y mediante la cooperación internacional, especialmente económica y técnica, que todas las personas extranjeras sin importar su estatus migratorio, residentes o en tránsito en su territorio, gocen de las garantías consagradas en el artículo 4 de la Constitución Política del Estado de Jalisco.
