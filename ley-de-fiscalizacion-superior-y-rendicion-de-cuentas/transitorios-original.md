@@ -1,5 +1,8 @@
 TRANSITORIOS
-PRIMERO. El presente decreto entrará en vigor el 1 de enero de 2018, previa su publicación en el periódico oficial "El Estado de Jalisco".
+(REFORMADO, P.O. 26 DE OCTUBRE DE 2017)
+PRIMERO. El presente decreto entrará en vigor el primero de enero de 2018, previa su publicación en el periódico oficial "El Estado de Jalisco"; con excepción de:
+l. El artículo 17 de la Ley de Fiscalización Superior y Rendición de Cuentas del Estado de Jalisco y sus Municipios, que entrará en vigor al día 23 de octubre de 2017; y
+II. En consecuencia, se derogan los artículos 15, fracción VI; 28; 29; y 31 de la Ley de Fiscalización Superior y Auditoría Pública del Estado de Jalisco y sus Municipios, con efectos a partir del día 23 de octubre de 2017.
 SEGUNDO. Las cuenta (sic) públicas 2017 y anteriores se regirán conforme a la Ley derogada mediante el presente decreto.
 El ejercicio de la cuenta pública 2018 y posteriores se regirán mediante de (sic) proceso establecido en la Ley de Fiscalización Superior y Rendición de Cuentas del Estado de Jalisco y sus Municipios.
 TERCERO. El Auditor Superior del Estado contará con un plazo de 180 días siguientes a la entrada en vigor del presente decreto, para expedir las disposiciones que conforme al mismo le son conferidas; hasta en tanto se emiten dichas disposiciones se seguirán aplicando las vigentes en lo que no se opongan al presente decreto.
@@ -27,3 +30,4 @@ JORGE ARISTÓTELES SANDOVAL DÍAZ
 El Secretario General de Gobierno
 ROBERTO LÓPEZ LARA
 (Rubrica)
+[N. DE. E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
