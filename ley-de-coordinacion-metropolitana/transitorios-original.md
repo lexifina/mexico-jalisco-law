@@ -14,7 +14,7 @@ Diputada Secretaria
 ANA BERTHA GUZMÁN ALATORRE
 (RÚBRICA)
 Diputada Secretaria
-MARGARITA LICEA GOZÁLEZ
+MARGARITA LICEA GONZÁLEZ
 (RÚBRICA)
 En mérito de lo anterior y con fundamento en el artículo 50 fracción I de la Constitución Política del Estado de Jalisco, mando se imprima, publique, divulgue y se le dé el debido cumplimiento.
 Emitido en Palacio de Gobierno, sede del Poder Ejecutivo del Estado Libre y Soberano de Jalisco, a los 24 veinticuatro días del mes de enero de 2011 dos mil once.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE ENERO DE 2018)
+Artículo 49 Bis. Toda persona, física o jurídica, podrá denunciar ante el órgano de control interno de las entidades, todo hecho, acto u omisión que contravenga las disposiciones de este Código, las leyes estatales en la materia, las normas oficiales mexicanas o los planes o programas a que se refiere este Código. Igualmente tendrán derecho a exigir que se apliquen las medidas de seguridad y sanciones procedentes y solicitar ser representados ante las autoridades administrativas y jurisdiccionales que corresponda.

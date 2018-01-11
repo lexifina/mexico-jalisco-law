@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 11 DE ENERO DE 2018)
+Artículo 81 bis. Los programas y planes de desarrollo urbano no podrán realizarse o actualizarse hasta en tanto no se hayan realizado o actualizado los instrumentos de referencia a los que se refiere este código, correspondientes a su escala y ámbito de aplicación.
+En el supuesto que la dependencia responsable de la elaboración de los programas y planes de desarrollo urbano determine que los instrumentos de referencia no requieren actualización, dicha aseveración deberá estar justificada y soportada en un análisis técnico, que deberá ser turnado para su estudio y validación en un periodo no mayor a treinta días naturales, por parte de las dependencias encargadas de realizar los instrumentos de referencia.
