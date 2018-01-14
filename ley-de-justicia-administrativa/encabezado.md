@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE JUSTICIA ADMINISTRATIVA DEL ESTADO DE JALISCO
 Ley publicada en la Sección Segunda del Periódico Oficial del Estado de Jalisco, el martes 18 de enero de 2000.
 Al margen un sello que dice: Gobierno del Estado de Jalisco. Poder Ejecutivo. Secretaría General de Gobierno. Estados Unidos Mexicanos.
