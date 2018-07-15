@@ -1,0 +1,3 @@
+P.O. 14 DE JULIO DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO 26840/LXI/18 QUE REFORMA LA LEY DE ENTREGA RECEPCIÓN DEL ESTADO DE JALISCO Y SUS MUNICIPIOS Y LA LEY DE AUSTERIDAD Y AHORRO DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
