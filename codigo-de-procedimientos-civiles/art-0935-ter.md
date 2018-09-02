@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 1 DE SEPTIEMBRE DE 2018)
+ARTICULO 935 TER.- Los herederos y/o legatarios que hayan iniciado o continuado un procedimiento sucesorio ante Notario Público, con el consentimiento del albacea, podrán continuar la prosecución del mismo ante un Notario distinto del que hubiere conocido, siempre y cuando sea competente de conformidad con lo dispuesto por el artículo 935 Bis.
