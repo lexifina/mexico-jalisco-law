@@ -1,0 +1,3 @@
+P.O. 6 DE SEPTIEMBRE DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO 26936/LXI/18 QUE ADICIONA EL ARTÍCULO 14 BIS A LA LEY DE GOBIERNO Y LA ADMINISTRACIÓN PÚBLICA MUNICIPAL DEL ESTADO DE JALISCO".]
+ÚNICO. Esta ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
