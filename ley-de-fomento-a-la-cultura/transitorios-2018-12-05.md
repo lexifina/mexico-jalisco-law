@@ -1,0 +1,3 @@
+P.O. 5 DE DICIEMBRE DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO 27187/LXII/18 QUE REFORMA EL ARTÍCULO 3°, ADICIONA LA FRACCIÓN XI Y MODIFICA LA FRACCIÓN III DEL ARTÍCULO 6° DE LA LEY DE FOMENTO A LA CULTURA DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor el día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
