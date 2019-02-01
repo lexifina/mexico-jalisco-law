@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE FEBRERO DE 2019)
+Art. 168 Bis.- En todos los casos en que la ley o cualquier instrumento legal se refiera a derechos patrimoniales de la beneficencia pública, le corresponde al Sistema Estatal para el Desarrollo Integral de la Familia, su percepción y administración.
