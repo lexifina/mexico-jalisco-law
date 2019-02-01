@@ -1,0 +1,6 @@
+CÓDIGO DE ASISTENCIA SOCIAL DEL ESTADO DE JALISCO
+Código publicado en la Edición Especial del Periódico Oficial del Estado de Jalisco, el viernes 1 de febrero de 2019.
+Al margen un sello que dice: Estados Unidos Mexicanos. Gobierno del Estado de Jalisco. Poder Ejecutivo. Secretaría General de Gobierno.
+Enrique Alfaro Ramírez, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber, que por conducto de la Secretaría del H. Congreso de esta Entidad Federativa, se me ha comunicado el siguiente decreto.
+NÚMERO 27229/LXII/19 EL CONGRESO DEL ESTADO DECRETA:
+SE EXPIDE EL CÓDIGO DE ASISTENCIA SOCIAL; REFORMA DIVERSOS ARTÍCULOS DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES EN EL ESTADO DE JALISCO, DE LA LEY DE INGRESOS DEL ESTADO DE JALISCO PARA EL EJERCICIO FISCAL 2019, DEL CÓDIGO FISCAL DEL ESTADO DE JALISCO Y DE LA LEY ORGÁNICA DEL PODER EJECUTIVO DEL ESTADO DE JALISCO; Y ESTABLECE LAS BASES PARA LA LIQUIDACIÓN Y EXTINCIÓN DEL ORGANISMO PÚBLICO DESCENTRALIZADO DENOMINADO INSTITUTO JALISCIENSE DE ASISTENCIA SOCIAL
