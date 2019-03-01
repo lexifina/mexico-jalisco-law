@@ -2,4 +2,4 @@
 Art. 154-K. Cuando la comisión de las conductas descritas en el artículo 154 H, sean parte de un ataque generalizado, sistemático, indiscriminado o desproporcionado contra un grupo o sector de la población civil, la pena se aumentará hasta en dos terceras partes.
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 26 DE SEPTIEMBRE DE 2017)
 CAPITULO XIII
-Del Ocultamiento o Falsificación de Rendimientos y Tráfico de Influencias
+Del ocultamiento o falsificación de rendimientos y tráfico de influencias

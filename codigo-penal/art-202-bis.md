@@ -10,4 +10,4 @@ V. Niegue o restrinja los derechos educativos y de salud.
 No serán consideradas como discriminatorias todas aquellas medidas tendientes a la protección de los grupos vulnerables, de conformidad a la ley.
 Al servidor público que, por las razones previstas en este artículo, niegue o retarde a una persona un trámite, servicio o prestación al que tenga derecho, se le aumentará en una mitad la pena prevista en el presente artículo y además se le impondrá destitución e inhabilitación para el desempeño de cualquier cargo, empleo o comisión públicos hasta por el mismo tiempo de la pena de prisión impuesta.
 CAPITULO V
-Reglas generales
+Reglas Generales
