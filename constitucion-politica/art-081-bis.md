@@ -1,7 +1,7 @@
-(ADICIONADO, P.O. 1 DE MAYO DE 2008)
-Art. 81 bis. Cuando se trate de municipios pertenecientes a una misma área metropolitana, éstos se coordinarán, en pleno ejercicio de sus facultades constitucionales, de acuerdo con las bases generales que en materia de coordinación metropolitana expida el Congreso del Estado.
+(REFORMADO, P.O. 12 DE MARZO DE 2019)
+Art. 81 Bis. Los municipios que integren un área metropolitana se coordinarán a través de las instancias y conforme las bases que establezca la legislación estatal en materia de coordinación metropolitana y se establezcan en los respectivos estatutos orgánicos.
 La coordinación metropolitana se efectuará a través de las siguientes instancias:
-I. Una instancia de coordinación política por cada una de las áreas metropolitanas, que se integrarán por los presidentes municipales de los ayuntamientos del área metropolitana correspondiente y, previo convenio, por el Gobernador del Estado. La personalidad jurídica de dichas instancias será definida por sus integrantes;
-II. Una instancia de carácter técnico que estará constituido como un organismo público descentralizado, con personalidad jurídica y patrimonio propios denominado Instituto Metropolitano de Planeación, mismo que deberá ser constituido por los ayuntamientos del área metropolitana correspondiente; y
-III. Una instancia consultiva y de participación ciudadana, de carácter honorífico, por cada una de las áreas metropolitanas, que podrá participar en las tareas de evaluación y seguimiento.
-Las reglas para la organización y funcionamiento de las instancias de coordinación metropolitana, estarán establecidas en las leyes que sobre la materia expida el Congreso del Estado de Jalisco.
+I. Una instancia de coordinación política por cada una de las áreas metropolitanas;
+II. Una instancia de carácter técnico, constituido como organismo público descentralizado intermunicipal, con personalidad jurídica y patrimonio propio;
+III. Una instancia consultiva y de participación ciudadana, de carácter honorífico, por cada una de las áreas metropolitanas, que podrá participar en tareas de evaluación y seguimiento; y
+IV. Las demás instancias que establezcan la legislación aplicable, o se establezcan en los respectivos estatutos orgánicos de las instancias de coordinación metropolitana de conformidad con la normativa respectiva.
