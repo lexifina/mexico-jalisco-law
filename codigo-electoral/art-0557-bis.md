@@ -1,0 +1,2 @@
+(REFORMADO, B.O. 31 DE DICIEMBRE DE 2010)
+Artículo 557 Bis.- Para los efectos de este ordenamiento, se considera expósito a aquel menor cuyo origen se desconoce y se coloque en una situación de desamparo por quienes conforme a la ley estén obligados a protegerlo; y como abandonado al menor que conociendo su origen, los que ejercen la patria potestad o tutela, dejan de cumplir con sus deberes de protección y cuidado, sin importar la posibilidad de que alguna persona o institución se haga cargo del mismo.

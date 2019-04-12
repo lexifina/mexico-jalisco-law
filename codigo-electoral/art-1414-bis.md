@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 11 DE JULIO DE 2006)
+Artículo 1414 Bis.- En todos los casos en que se otorgue un testamento conforme al presente Código, el Notario Público que de fe o la autoridad competente que lo reciba, deberá formular un Aviso de testamento por vía electrónica con los datos conducentes señalados en la legislación aplicable, al Archivo General de Notarias y por conducto de este, al Registro Nacional de Testamentos.

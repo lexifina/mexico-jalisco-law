@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 15 DE AGOSTO DE 2018)
+Artículo 2381 Quinquies.- La pérdida o deterioro del inmueble alquilado se presume siempre a cargo del arrendatario, a menos que éste pruebe que sobrevino sin culpa suya. La pérdida o deterioro del inmueble que sobrevenga por Caso Fortuito o Fuerza Mayor será a cargo del arrendatario, si éste usó el inmueble de un modo no conforme con el contrato o con la naturaleza y destino del bien, y sin cuyo uso no habría sobrevenido el caso fortuito.

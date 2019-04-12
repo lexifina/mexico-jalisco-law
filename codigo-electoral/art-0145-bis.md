@@ -1,0 +1,3 @@
+(ADICIONADO, B.O. 10 DE JULIO DE 2022)
+Artículo 145 Bis.- La sentencia que cause ejecutoria en el juicio de modificación de un acta del Registro Civil, se comunicará al Oficial del Registro Civil que corresponda para que haga las anotaciones en libro y acta correspondientes, además se deberá hacer referencia de ello, en las copias certificadas de las actas modificadas que al efecto se expidan, se podrá prescindir de esta referencia, cuando lo solicite expresamente el interesado al Oficial del Registro Civil.
+El Oficial del Registro Civil también comunicará oficiosamente la modificación del acta del registro civil a las representaciones en el Estado de las Secretarías de Gobernación, Hacienda y Crédito Público, Relaciones Exteriores e Instituto Nacional Electoral.

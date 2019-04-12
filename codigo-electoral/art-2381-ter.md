@@ -1,0 +1,2 @@
+(ADICIONADO, B.O. 15 DE AGOSTO DE 2018)
+Artículo 2381 Ter.- Si el arrendatario devuelve el inmueble antes del periodo convenido, cuando se acuerde un solo precio por temporada, está obligado a pagarlo íntegro; pero si el arrendamiento se ajusta por periodos concretos durante la temporada limitada a que se sujeta el arrendamiento, el arrendatario sólo está obligado a pagar los períodos corridos y en su caso, la fracción respectiva, hasta la entrega.

@@ -1,0 +1,4 @@
+B.O. 20 DE MARZO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 2618 SE DEROGAN LOS ARTÍCULOS 277 Y 287; SE REFORMAN LOS ARTÍCULOS 305 H, 312 Y 313, TODOS DEL CÓDIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE BAJA CALIFORNIA SUR. Y SE REFORMA EL ARTÍCULO 666 B DEL CÓDIGO DE PROCEDIMIENTOS CIVILES PARA EL ESTADO LIBRE Y SOBERANO DE BAJA CALIFORNIA SUR".]
+PRIMERO. El presente decreto entrara en vigor al día de su publicación en el Boletín Oficial del Gobierno del Estado de Baja California Sur.
+SEGUNDO. Se derogan todas las disposiciones legales que se opongan al presente decreto.

@@ -1,0 +1,4 @@
+B.O. 4 DE JULIO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO 3049 SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DEL CÓDIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE BAJA CALIFORNIA SUR".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Boletín Oficial del Gobierno del Estado de Baja California Sur.
+SEGUNDO.- El Titular del Poder Ejecutivo del Estado contará con 90 días hábiles para la adecuación de todas las disposiciones reglamentarias y administrativas materia del presente Decreto. Asimismo, la Dirección Estatal del Registro Civil deberá capacitar a las y los servidores públicos adscritos a dicha dependencia, a fin de sensibilizar y concientizar en la materia de derechos humanos, como el derecho a la igualdad, no discriminación, identidad de género y libre desarrollo de la personalidad.

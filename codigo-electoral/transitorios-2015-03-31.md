@@ -1,0 +1,3 @@
+B.O. 31 DE MARZO DE 2015
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Baja California Sur.
+SEGUNDO.- El presente decreto no se aplicara en forma retroactiva en perjuicio de persona alguna, ni en perjuicio de quienes hayan celebrado la constitución de contratos de crédito de mutuo con interés y garantía hipotecaria o contrato de créditos con garantía hipotecaria de vivienda en cualesquiera de sus modalidades otorgados por los institutos de seguridad social a sus derechohabientes en fecha anterior a la entrada en vigor del presente Decreto.
