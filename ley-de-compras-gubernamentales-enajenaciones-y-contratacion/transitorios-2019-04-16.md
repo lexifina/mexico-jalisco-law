@@ -1,0 +1,3 @@
+P.O. 16 DE ABRIL DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 27250/LXII/19 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 2 Y 26 DE LA LEY DE COMPRAS GUBERNAMENTALES, ENAJENACIONES Y CONTRATACIÓN DE SERVICIOS DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+Artículo Único. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
