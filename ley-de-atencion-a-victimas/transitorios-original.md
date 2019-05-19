@@ -3,7 +3,8 @@ PRIMERO. El presente decreto entrará en vigor a los treinta días siguientes de
 SEGUNDO. En tanto el Gobierno del Estado cuente con la capacidad financiera para apoyar a la Comisión Ejecutiva Estatal de Atención a Víctimas y hasta que no exista la disponibilidad presupuestal, la asesoría jurídica a que se refiere la presente ley será otorgada por la Comisión Estatal de Derechos Humanos del Estado de Jalisco.
 TERCERO. Dentro de los sesenta días siguientes a la entrada en vigor de la presente ley, el Ejecutivo Estatal remitirá al Congreso del Estado las ternas correspondientes a que se refiere el artículo 62 de esta ley.
 CUARTO. Se faculta a la Secretaría de Planeación, Administración y Finanzas del Gobierno del Estado, para que lleve a cabo las adecuaciones administrativas y presupuestales para el cumplimiento del decreto.
-SALÓN DE SESIONES DEL CONGRESO DEL ESTADO GUADALAJARA, JALISCO, 26 DE FEBRERO DE 2014
+SALÓN DE SESIONES DEL CONGRESO DEL ESTADO
+GUADALAJARA, JALISCO, 26 DE FEBRERO DE 2014
 Diputado Presidente
 HÉCTOR PIZANO RAMOS
 (RÚBRICA)
