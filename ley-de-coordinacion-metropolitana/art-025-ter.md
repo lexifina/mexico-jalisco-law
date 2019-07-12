@@ -1,0 +1,11 @@
+(ADICIONADO, P.O. 11 DE JULIO DE 2019)
+Artículo 25 Ter. Al conformarse un área metropolitana ésta funcionará a través de un Sistema Integral de Desarrollo Metropolitano, cuya operación atenderá al Régimen de Coordinación que para tal efecto se instale;
+1. Se entenderá como Sistema Integral de Desarrollo Metropolitano al conjunto de componentes que convergen en el desarrollo de las distintas tareas de información, planeación y gestión de un área metropolitana.
+2. El sistema, se integrará por las diversas instancias, planes, programas, instrumentos, presupuestos y proyectos de un área metropolitana, además concurrirán con sus diferentes recursos y en el ámbito de su competencia los tres niveles de gobierno, operará bajo una relación de interdependencia logrando un trabajo coordinado que atienda a la jerarquía y competencia que cada uno de los componentes determina.
+3. Para el correcto funcionamiento del sistema se definirán las prioridades y materias que resulten de interés para la metrópoli, siempre respetando lo previsto en este ordenamiento y en la Ley General de Asentamientos Humanos, Ordenamiento Territorial y Desarrollo Urbano.
+4. Para el desahogo de dichas materias se ejecutarán las actividades o funciones que resulten necesarias para tales fines, cuando éstas sean relacionadas con la planeación o la gestión del desarrollo metropolitano de un área determinada, recaerán dichas obligaciones atendiendo al Régimen de Coordinación a la Instancia Técnica que corresponda; sin embargo, cuando dichas acciones involucren necesariamente la prestación de un servicio público relacionado con una de las materias de interés metropolitano se creará una Agencia Metropolitana encargada específicamente de su cumplimiento, estas serán coordinadas a través del secretario técnico de la Junta de coordinación que corresponda.
+5. En lo que respecta a la prestación de servicios públicos, se respetará en todo momento la autonomía y las atribuciones conferidas directamente al estado o a los municipios que integran el área, salvo que estos hubiesen delegado expresamente la prestación de éstas.
+Título Cuarto
+Instancias de coordinación de área metropolitana
+Capítulo I
+Disposiciones generales
