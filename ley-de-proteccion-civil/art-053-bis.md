@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE AGOSTO DE 2019)
+Artículo 53 Bis. La Red Estatal de Brigadas Comunitarias, será una estructura ciudadana, organizada y compuesta de personas voluntarias conformados en brigadas, con el fin de trabajar de manera solidaria, mismos que tendrán que capacitarse y certificarse permanentemente por la Unidad Estatal de Protección Civil, para enfrentar dentro de su comunidad o entorno, los riesgos o peligros causados por los diversos agentes perturbadores.
