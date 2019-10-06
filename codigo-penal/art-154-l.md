@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2017)
-Art. 154-L. Al particular que, en su carácter de contratista, permisionario, proveedor, asignatario o concesionario, con la finalidad de obtener un beneficio para sí o para un tercero, oculte o falsee información respecto de los rendimientos o beneficios que obtenga, se le impondrán de tres meses a nueve años de prisión y multa por el importe de treinta a cien veces el valor diario de la Unidad de Medida y Actualización.
+Art. 154-L. (DEROGADO, P.O. 11 DE JULIO DE 2019)
