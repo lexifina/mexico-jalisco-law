@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE OCTUBRE DE 2019)
+Artículo 67-Ter. Los Ayuntamientos en sus áreas municipales de protección civil o la dependencia que ejerza facultades en materia ecológica, deberán contar con personal capacitado para el retiro de enjambres, salvaguardando en todo momento la supervivencia de la comunidad de abejas, o en su caso, dar aviso a los apicultores o asociaciones apícolas, con la finalidad de apoyar en el retiro de los enjambres y su reubicación.
