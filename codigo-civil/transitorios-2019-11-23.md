@@ -1,0 +1,3 @@
+P.O. 23 DE NOVIEMBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 27570/LXII/19 QUE REFORMA LOS ARTÍCULOS 268, 381 Y 391 DEL CÓDIGO CIVIL Y EL ARTÍCULO 82 DE LA LEY DEL REGISTRO CIVIL, AMBOS DEL ESTADO DE JALISCO".]
+ÚNICO. Esta ley entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
