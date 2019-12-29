@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE DICIEMBRE DE 2019)
+Art. 1981 Bis.- Tratándose de bienes inmuebles, las partes no pueden convenir en ningún momento, bajo pena de nulidad, interés de ningún tipo que exceda lo contemplado en los artículos comprendidos del 1974 al 1977 en el capítulo de este Código referente a mutuo con interés.
