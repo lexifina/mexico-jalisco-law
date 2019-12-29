@@ -1,0 +1,3 @@
+P.O. 28 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 27722/LXII/19 QUE REFORMA EL ARTÍCULO 151 DE LA LEY DE PROTECCIÓN DE DATOS PERSONALES EN POSESIÓN DE SUJETOS OBLIGADOS DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+ÚNICO. El presente decreto entrará en vigor el día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
