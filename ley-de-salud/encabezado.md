@@ -1,5 +1,5 @@
 LEY DE SALUD DEL ESTADO DE JALISCO
-Ley publicada en la Número 24 Bis, Edición Especial del Periódico Oficial "El Estado de Jalisco", el miércoles 5 de diciembre de 2018.
+Ley publicada en el Número 24 Bis Edición Especial del Periódico Oficial del Estado de Jalisco, el miércoles 5 de diciembre de 2018.
 Al margen un sello que dice: Estados Unidos Mexicanos. Gobierno del Estado de Jalisco. Poder Ejecutivo. Secretaría General de Gobierno.
 Jorge Aristóteles Sandoval Díaz, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber, que por conducto de la Secretaría del H. Congreso de esta Entidad Federativa, se me ha comunicado el siguiente decreto
 NÚMERO 27193/LXII/18 EL CONGRESO DEL ESTADO DECRETA:
