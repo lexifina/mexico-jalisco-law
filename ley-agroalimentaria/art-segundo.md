@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se crea el organismo público descentralizado de la administración pública paraestatal del Gobierno del Estado de Jalisco, denominado Agencia de Sanidad, Inocuidad y Calidad Agroalimentaria de Jalisco.

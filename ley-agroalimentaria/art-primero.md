@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO. Se abrogan la Ley de Coordinación en Materia de Sanidad Animal para el Estado de Jalisco y sus Municipios y la Ley de Coordinación en Materia de Sanidad Vegetal del Estado de Jalisco.
