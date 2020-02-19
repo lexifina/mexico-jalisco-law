@@ -1,0 +1,3 @@
+P.O. 18 DE FEBRERO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO27800/LXII/20 QUE REFORMA LOS ARTÍCULOS 685, 688 Y 689 DEL CÓDIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE JALISCO; Y EL ARTÍCULO 2045 DEL CÓDIGO CIVIL DEL ESTADO DE JALISCO".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
