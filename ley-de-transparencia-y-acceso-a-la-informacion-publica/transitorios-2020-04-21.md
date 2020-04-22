@@ -1,0 +1,5 @@
+P.O. 21 DE ABRIL DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO 27853/LXII/20, MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN X DEL ARTÍCULO 11 DE LA LEY DE TRANSPARENCIA Y ACCESO A LA INFORMACIÓN PÚBLICA DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. Para el cumplimiento de las obligaciones derivadas del presente decreto, en lo referente a la publicación de las sentencias de los últimos diez años, el Supremo Tribunal de Justicia y el Consejo de la Judicatura, respectivamente, deberán emitir a más tardar en los siguientes 60 días contados a partir de la entrada en vigor del presente decreto, el acuerdo de implementación que contenga la programación, calendarización y progresividad con que se dará cumplimiento, sin que exceda del 01 de julio de 2022.
+TERCERO. El Supremo Tribunal de Justicia y el Consejo de la Judicatura deberán contemplar en su anteproyecto de presupuesto de egresos para los subsecuentes ejercicios fiscales, las partidas presupuestales suficientes para el cumplimiento de la obligación establecida en el presente decreto.
