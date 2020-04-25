@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 24 DE ABRIL DE 2020)
+Artículo 33 Bis. El Ayuntamiento puede, excepcionalmente, en casos fortuitos o de fuerza mayor sesionar a distancia empleando medios telemáticos, electrónicos, ópticos o cualquier otra tecnología.
+Las sesiones que realice el Ayuntamiento de manera no presencial a distancia o en linea, se entenderán como realizadas en el salón de sesiones de la presidencia municipal.
+El presidente municipal conducirá estas sesiones presencialmente desde el salón de sesiones del Ayuntamiento, con la presencia física del Secretario General y a falta de éste el Síndico Municipal; los regidores que deseen participar de formar (sic) presencial en la sesión, podrán estar presentes en los términos ordinarios, misma que podrá funcionar con la asistencia de la Presidencia y uno de los Secretarios.
+Es decisión individual y libre de cada Regidor, asistir presencialmente al salón de sesiones o participar por los medios electrónicos autorizados para el desahogo de una sesión a distancia.
+El desahogo de este tipo de sesiones debe transmitirse en vivo para los integrantes del ayuntamiento en el propio salón de sesiones, así como para el público en general, debiendo contar con un soporte de grabación de audio y video que garantice el testimonio de las participaciones de todos los integrantes.
+Se debe garantizar la conexión permanente de los miembros del Ayuntamiento a la sesión, así como el apoyo, asesoría y soporte informático que permitan a todos los regidores su plena participación en la misma.
+Las votaciones a reglamentos municipales, la designación, elección, ratificación o insaculación de servidores públicos o asuntos legales o de propiedad, la suspensión (sic) servidor público, no se pueden desahogar mediante una sesión a distancia.

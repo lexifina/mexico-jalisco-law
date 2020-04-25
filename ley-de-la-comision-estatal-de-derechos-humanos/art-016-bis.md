@@ -1,0 +1,9 @@
+(ADICIONADO, P.O. 24 DE ABRIL DE 2020)
+Artículo 16 Bis. En casos fortuitos o de fuerza mayor, que impidan o hagan inconveniente la presencia física de los Consejeros en un mismo lugar, las sesiones podrán celebrarse a distancia, empleando medios telemáticos, electrónicos, ópticos o cualquier otra tecnología, que permita por lo menos:
+I. La identificación visual plena de los Consejeros, aunque deberá privilegiarse, en caso de que exista la posibilidad, el uso de herramientas que permita la identificación mediante el uso de la firma electrónica avanzada;
+II. La interacción e intercomunicación, en tiempo real, para propiciar la correcta deliberación de la ideas y asuntos; y
+III. Dejar registro audiovisual de la sesión y sus acuerdos.
+En los casos mencionados en el párrafo anterior, la convocatoria, celebración de las sesiones a distancia y redacción y formalización de las correspondientes actas y acuerdos, se sujetarán a las disposiciones reglamentarias.
+(REUBICADA, P.O. 13 DE FEBRERO DE 2001)
+Sección Quinta
+De las facultades y obligaciones de los consejeros ciudadanos.
