@@ -1,10 +1,12 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
-CÓDIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE BAJA CALIFORNIA SUR
-Código publicado en el Boletín Oficial del Estado de Baja California Sur, el viernes 19 de julio de 1996.
-GUILLERMO MERCADO MORENO, GOBERNADOR CONSTITUCIONAL DEL ESTADO DE BAJA CALIFORNIA SUR, A SUS HABITANTES HACE SABER.
-QUE EL H. CONGRESO DE ESTADO, SE HA SERVIDO DIRIGIRME EL SIGUIENTE:
-DECRETO NUMERO 1090
-EL CONGRESO DEL ESTADO DE BAJA CALIFORNIA SUR
-DECRETA:
-CODIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE BAJA CALIFORNIA SUR
-Disposiciones Preliminares
+CÓDIGO ELECTORAL DEL ESTADO DE JALISCO
+Código publicado en la Sección II del Periódico Oficial del Estado de Jalisco, el martes 5 de agosto de 2008.
+Al margen un sello que dice: Gobierno de Jalisco. Poder Ejecutivo. Secretaría General de Gobierno. Estados Unidos Mexicanos.
+Emilio González Márquez, Gobernador Constitucional del Estado Libre y Soberano de Jalisco, a los habitantes del mismo hago saber, que por conducto de la Secretaría del H. Congreso de esta Entidad Federativa, se me ha comunicado el siguiente decreto
+NÚMERO 22272/LVIII/08 EL CONGRESO DEL ESTADO DECRETA:
+ÚNICO. Se ratifica el decreto 22271/LVIII/08, mediante el cual se expide el Código Electoral y de Participación Ciudadana del Estado de Jalisco, por lo que se envía la minuta correspondiente, al Ejecutivo del Estado, para su publicación en los términos del artículo 33 de la Constitución Política del Estado de Jalisco.
+(REFORMADA SU DENOMINACIÓN, P.O. 9 DE ABRIL DE 2019)
+CÓDIGO ELECTORAL DEL ESTADO DE JALISCO
+Libro Primero
+De la Integración de los Poderes Legislativo, Ejecutivo del Estado y Ayuntamientos
+Título Primero
+Disposiciones Generales
