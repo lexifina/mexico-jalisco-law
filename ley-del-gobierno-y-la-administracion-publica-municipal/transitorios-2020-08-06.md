@@ -1,0 +1,7 @@
+P.O. 6 DE AGOSTO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO 27930/LXII/20 QUE REFORMA LOS ARTÍCULOS 15, 47, 48, 144, 145 Y 146; SE ADICIONAN LOS ARTÍCULOS 67 TER, 67 QUÁTER Y 67 QUINQUIES; SE DEROGAN LOS ARTÍCULOS 147 Y 147 BIS DE LA LEY DEL GOBIERNO Y LA ADMINISTRACIÓN PÚBLICA MUNICIPAL DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. Los Ayuntamientos que a la entrada en vigor de este decreto no cuenten con un Titular del Órgano Interno de Control, contarán con un plazo máximo de 180 días naturales para su nombramiento.
+TERCERO. Se dejan a salvo los derechos de los servidores públicos que se encuentren haciendo las funciones de Titular del Órgano Interno de Control, para que participen en la convocatoria pública, que para efecto de elegir al nuevo titular de dicho órgano, se emita.
+CUARTO. En caso de que por cualquier motivo no se encuentren funcionando los órganos internos de control o quien haga sus veces, las declaraciones de situación patrimonial, de intereses y la constancia de presentación de la declaración fiscal serán presentadas ante el titular del ente público correspondiente.
+QUINTO. La Auditoría Superior del Estado de Jalisco en el ejercicio de sus facultades y atribuciones deberá brindar capacitación y asesoría legal a los Ayuntamientos para la adecuada y correcta instrumentación de los órganos internos de control en la administración pública municipal del Estado de Jalisco.

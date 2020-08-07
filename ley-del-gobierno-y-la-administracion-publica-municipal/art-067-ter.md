@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 6 DE AGOSTO DE 2020)
+Artículo 67 ter. En cada uno de los municipios debe haber un funcionario Titular del Órgano Interno de Control a más tardar treinta días naturales posteriores a la emisión de la convocatoria pública.
+I. El Presidente Municipal propondrá al Ayuntamiento una terna para elegir al Titular del Órgano Interno de Control.
+II. Si el Ayuntamiento rechaza las propuestas, el Presidente Municipal deberá someterlas a consideración nuevamente, dentro de los tres días naturales siguientes. Transcurrido este plazo sin que dicho cuerpo colegiado haga la elección o niegue la aprobación de alguno de los candidatos, el Presidente debe expedir inmediatamente el nombramiento en favor de cualesquiera de los que hubiesen formado parte de la terna correspondiente.
+La votación para la designación del Titular del Órgano Interno del Control será por mayoría calificada del total de los integrantes, quien durará en su encargo al término de la administración por la que fue nombrado, con derecho a ratificación hasta por un periodo más.
+En tanto se nombra al Titular del Órgano Interno de Control, el Presidente Municipal designará un encargado de éste, que podrá ser el Titular del Órgano Interno de Control de la administración saliente.

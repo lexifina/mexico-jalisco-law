@@ -1,0 +1,16 @@
+(ADICIONADO, P.O. 6 DE AGOSTO DE 2020)
+Artículo 67 quinquies.
+1. Los órganos internos de control tendrán las siguientes atribuciones:
+I. Implementar mecanismos para prevenir las faltas administrativas y los hechos de corrupción, así como evaluar anualmente estos mecanismos y sus resultados;
+II. Investigar, substanciar y calificar las faltas administrativas;
+III. Resolver las faltas administrativas no graves e imponer y ejecutar las sanciones correspondientes;
+IV. Remitir los procedimientos sobre faltas administrativas graves, debidamente sustanciados, al Tribunal de Justicia Administrativa para su resolución;
+V. Revisar el ingreso, egreso, manejo, custodia y aplicación de los recursos públicos;
+VI. Presentar denuncias ante la Fiscalía Especializada en Combate a la Corrupción, cuando tenga conocimiento de omisiones o hechos de corrupción que pudieran ser constitutivos de delito;
+VII. Recibir y en su caso, requerir, las declaraciones de situación patrimonial, de intereses y la constancia de presentación de la declaración fiscal de los servidores públicos, así como inscribirlas y mantenerlas actualizadas en el sistema correspondiente;
+VIII. Realizar verificaciones aleatorias de las declaraciones que obren en el sistema de evolución patrimonial, de declaración de intereses y de declaración fiscal con propósitos de investigación y auditoría;
+IX. Requerir a los servidores públicos las aclaraciones pertinentes cuando sea detectado un aparente incremento inexplicable de su patrimonio;
+X. Emitir, observar y vigilar el cumplimiento del Código de Ética, al que deberán sujetarse los servidores públicos del ente público, conforme a los lineamientos que emita el Sistema Nacional Anticorrupción;
+XI. Implementar el protocolo de actuación en contrataciones públicas expedido por el Comité Coordinador del Sistema Nacional Anticorrupción;
+XII. Tramitar y en su caso resolver, los recursos derivados de los procedimientos de responsabilidad administrativa, según corresponda; y
+XIII. Las demás que le otorguen la legislación general y estatal aplicable.
