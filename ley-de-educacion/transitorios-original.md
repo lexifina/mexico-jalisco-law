@@ -6,8 +6,10 @@ CUARTO. Las personas titulares del Ejecutivo y de la Secretaría de Educación d
 QUINTO. La Comisión Estatal de Planeación y Coordinación del Sistema de Educación Media Superior del Estado de Jalisco prevista en el artículo 30 de la presente Ley, sustituye al Consejo Estatal para la Planeación de la Educación Media Superior, y deberá instalarse en un plazo no mayor de 90 noventa días hábiles contados a partir de la entrada en vigor de esta Ley.
 SEXTO. El Sistema Integral de Formación, Capacitación y Actualización del Estado de Jalisco, previsto en el artículo 95 de esta Ley, deberá instalarse en un plazo no mayor a 90 noventa días hábiles contados a partir de la entrada en vigor de esta Ley.
 SÉPTIMO. Los temas no previstos en relación a la Comisión Estatal para la Mejora Continua en Jalisco, se complementarán en el Decreto que para tal efecto emita el titular del Poder Ejecutivo del Estado de Jalisco. El titular del Ejecutivo del Estado de Jalisco designará a la persona titular de la Comisión Estatal para la Mejora Continua en Jalisco, en un plazo no mayor a 60 sesenta días hábiles contados a partir de la emisión de la presente Ley.
-OCTAVO. El H. Congreso del Estado de Jalisco tiene un plazo de 60 sesenta días hábiles, a partir de la entrada en vigor de esta Ley, para emitir las disposiciones legales correspondientes, derivadas de la presente Ley y nombrar a los miembros del Consejo Técnico Ciudadano referido en el artículo 112 de esta Ley.
-NOVENO. El SIMEJORA del Estado de Jalisco, previsto en el artículo 112 de esta Ley deberá instalarse en un plazo no mayor a 75 setenta y cinco días hábiles contados a partir de su entrada en vigor de esta Ley.
+(REFORMADO, P.O. 15 DE AGOSTO DE 2020)
+OCTAVO. El H. Congreso del Estado de Jalisco tiene un plazo de 150 ciento cincuenta días naturales, a partir de la entrada en vigor de esta Ley, para emitir las disposiciones legales correspondientes, y nombrar a los miembros del Consejo Técnico Ciudadano referido en el artículo 112.
+(REFORMADO, P.O. 15 DE AGOSTO DE 2020)
+NOVENO. El SIMEJORA del Estado de Jalisco, previsto en el artículo 112 de esta Ley deberá instalarse en un plazo no mayor a 165 ciento sesenta y cinco días naturales, contados a partir de su entrada en vigor.
 DÉCIMO. Las erogaciones que se generen con motivo de la entrada en vigor de la presente Ley, se realizarán con cargo a la disponibilidad presupuestaria que se apruebe para tal fin al sector educativo en el ejercicio fiscal de que se trate, lo cual se llevará a cabo de manera progresiva con el objeto de cumplir con las obligaciones que tendrán a su cargo las autoridades competentes.
 DÉCIMO PRIMERO. Los procedimientos referentes a equivalencias, autorización o reconocimiento de validez oficial de estudios y trámites administrativos que se iniciaron con anterioridad a la entrada en vigor de esta Ley, continuarán, hasta su conclusión, regidos con los reglamentos, acuerdos y demás disposiciones de carácter general en los cuales se fundamentaron.
 SALÓN DE SESIONES DEL CONGRESO DEL ESTADO
@@ -30,3 +32,4 @@ Gobernador Constitucional del Estado de Jalisco
 JUAN ENRIQUE IBARRA PEDROZA
 Secretario General de Gobierno
 (RÚBRICA)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
