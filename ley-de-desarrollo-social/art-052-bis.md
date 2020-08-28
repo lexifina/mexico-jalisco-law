@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE AGOSTO DE 2020)
+Artículo 52 Bis. Se ejecutará un solo esquema de contraloría social por cada Programa de Desarrollo Social, en el cual se conformarán Comités de Contraloría Social distribuidos por localidades, mismas que serán definidas por los entes públicos encargados de los Programas, en consideración al ámbito de aplicación y ejecución de los mismos.
+Los Comités serán conformados por beneficiarios de la intervención pública específica, en representación de la localidad a la que pertenecen; cuya vigencia corresponderá al periodo de aplicación del programa a vigilar. Dichos cargos serán honoríficos y, por tanto, no remunerados.

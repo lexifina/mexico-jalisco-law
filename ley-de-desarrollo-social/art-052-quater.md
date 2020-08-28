@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 27 DE AGOSTO DE 2020)
+Artículo 52 Quáter. Los entes públicos encargados de los Programas de Desarrollo Social deben:
+I. Desarrollar el esquema de aplicación de la contraloría social, así como promover su implementación y dar seguimiento a las acciones realizadas por los Comités, con apego a los Lineamientos que para tal efecto emita la Contraloría del Estado aplicables para la Administración Pública Estatal, o aquéllos que emitan los Órganos Internos de Control en los municipios; y
+II. Recibir, atender y determinar la procedencia de las manifestaciones realizadas por los Comités de Contraloría Social o sus beneficiarios en lo particular, respecto a la operación de los mismos, así como informar el seguimiento otorgado a las quejas o denuncias interpuestas en la vigilancia del programa.
