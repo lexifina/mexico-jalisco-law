@@ -7,9 +7,6 @@ Si el acosador u hostigador presta sus servicios en cualquier institución públ
 Al responsable que cometa este delito en contra de servidores públicos que en el ejercicio de su (sic) funciones estén expuestos al contacto con la ciudadanía, se le podrá aumentar hasta en una mitad la pena prevista.
 (REFORMADO, P.O. 24 DE OCTUBRE DE 2019)
 Estos delitos sólo serán perseguidos por querella del ofendido o de su legítimo representante, salvo que se trate de un incapaz o menor de edad en cuyo caso se procederá de oficio. Una vez presentada la denuncia el delito se seguirá de oficio.
-(REFORMADO, P.O. 23 DE SEPTIEMBRE DE 2000)
-TITULO DECIMO SEGUNDO
-DELITOS CONTRA EL ORDEN DE LA FAMILIA
-(REFORMADA SU DENOMINACIÓN, P.O. 1 DE DICIEMBRE DE 2015)
-CAPITULO I
-De la Violencia Familiar
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 19 DE SEPTIEMBRE DE 2020)
+CAPITULO V
+Violación a la intimidad sexual
