@@ -1,0 +1,6 @@
+G.M. 7 DE OCTUBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL DICTAMEN POR EL QUE "SE EXPIDE EL REGLAMENTO DE PARTICIPACIÓN CIUDADANA PARA LA GOBERNANZA DE GUADALAJARA; SE ABROGA EL REGLAMENTO DE PARTICIPACIÓN CIUDADANA PARA LA GOBERNANZA DEL MUNICIPIO DE GUADALAJARA Y SE REFORMA EL CÓDIGO DE GOBIERNO MUNICIPAL DE GUADALAJARA".]
+Primero. Publíquese el presente ordenamiento municipal en la Gaceta Municipal de Guadalajara.
+Segundo. El presente ordenamiento municipal entrará en vigor al día siguiente de su publicación en la Gaceta Municipal de Guadalajara.
+Tercero. Las consejerías ciudadanas seguirán en funciones hasta en tanto no corresponda su renovación conforme fueron electos, las consejerías ciudadanas tipo A se renovarán en el mes de julio del año siguiente a aquel en que haya iniciado el periodo del Gobierno Municipal y las consejerías ciudadanas B se renovarán en el mes de julio del tercer año siguiente a aquel en que haya iniciado el periodo del Gobierno Municipal.
+Cuarto. Una vez publicadas las presentes disposiciones, remítase mediante oficio un tanto de ellas al Congreso del Estado de Jalisco para los efectos ordenados en la fracción VII del artículo 42 de la Ley del Gobierno y la Administración Pública Municipal del Estado de Jalisco.
