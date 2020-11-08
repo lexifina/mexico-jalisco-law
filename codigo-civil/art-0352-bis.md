@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE NOVIEMBRE DE 2020)
+Art. 352 Bis.- Cuando durante el matrimonio una de las partes se haya dedicado exclusivamente a las labores propias del hogar y al cuidado de los dependientes, el régimen de separación de bienes, deberá ser substituido por el régimen de sociedad legal, siempre y cuando exista sentencia ejecutoriada de delito en contra del cónyuge que se haya dedicado a las labores propias del hogar y cuidado de los dependientes.
