@@ -3,9 +3,6 @@ Art. 176 Bis 2. Comete el delito de ciberacoso la persona que por medio de las t
 Al responsable se le impondrá una sanción de cien días de trabajo a favor de la comunidad y asistencia a programas de reeducación integral con perspectiva de género.
 Si la victima fuese persona defensora de derechos humanos, con discapacidad o con cualquier tipo de vulnerabilidad social, menor de edad o se causare algún daño o sufrimiento grave, a juicio del juez o el tribunal, en perjuicio de la víctima, la sanción será de uno a cuatro años de prisión.
 Este delito se perseguirá por querella de la ofendida o de su legítimo representante, salvo que se trate de menor de edad en cuyo caso se procederá de oficio.
-(REFORMADO, P.O. 23 DE SEPTIEMBRE DE 2000)
-TITULO DECIMO SEGUNDO
-DELITOS CONTRA EL ORDEN DE LA FAMILIA
-(REFORMADA SU DENOMINACIÓN, P.O. 1 DE DICIEMBRE DE 2015)
-CAPITULO I
-De la Violencia Familiar
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 8 DE DICIEMBRE DE 2020)
+Capítulo VII
+Violación a la intimidad sexual
