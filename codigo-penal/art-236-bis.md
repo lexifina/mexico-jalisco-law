@@ -9,8 +9,8 @@ II. De tres a ocho años de prisión y multa por el importe de quince a sesenta 
 (REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
 III. De cuatro a once años de prisión y multa por el importe de veinte a noventa veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado exceda del monto de mil veces el valor diario de la Unidad de Medida y Actualización; y
 IV. De tres a seis años de prisión, cuando no pudiera determinarse el valor de lo robado o, si por su naturaleza, no fuere estimable en dinero.
-(REFORMADO PRIMER PÁRRAFO, P.O. 3 DE DICIEMBRE DE 2013)
-B) Si interviene alguna de las calificativas que se consignan en las fracciones V, X, XII, XIII, XIV, XV, XVI, XVII y XIX del artículo anterior, la pena será:
+(REFORMADO PRIMER PÁRRAFO, P.O. 29 DE DICIEMBRE DE 2020)
+B) Si interviene alguna de las calificativas que se consignan en las fracciones V, X, XII, XIII, XIV, XV, XVI, XVII, XIX y XX del artículo anterior, la pena será:
 (REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
 I. De cinco a diez años de prisión y multa por el importe de quince a sesenta veces el valor diario de la Unidad de Medida y Actualización, cuando el valor de lo robado no exceda del importe de trescientos setenta veces el valor diario de la Unidad de Medida y Actualización;
 (REFORMADA, P.O. 11 DE OCTUBRE DE 2016)
