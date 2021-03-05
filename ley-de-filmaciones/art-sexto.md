@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. El Titular del Poder Ejecutivo del Estado deberá expedir las disposiciones reglamentarias para el cumplimiento del presente decreto, dentro de los 90 días naturales siguientes a la entrada en vigor de esta Ley.

@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. El Titular del Poder Ejecutivo del Estado deberá realizar las modificaciones presupuestales necesarias a fin de dotar al Fondo Filma en Jalisco de los recursos necesarios para cumplir con lo dispuesto en el presente Decreto.
