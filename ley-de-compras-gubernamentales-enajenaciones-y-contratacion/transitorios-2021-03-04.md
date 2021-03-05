@@ -1,0 +1,7 @@
+P.O. 4 DE MARZO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO 28312/LXII/21 QUE REFORMA DIVERSOS ARTÍCULOS DE LA LEY DE COMPRAS Y GUBERNAMENTALES, ENAJENACIONES Y CONTRATACIÓN DE SERVICIOS DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+PRIMERO. El presente decreto entrará en vigor el día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. Se instruye a la Secretaría de la Hacienda Pública, para que realice las adecuaciones presupuestales correspondientes para destinar las aportaciones al Fondo Impulso Jalisco.
+TERCERO. Los ayuntamientos de los municipios cuya población sea mayor a los 200 mil habitantes, en el ámbito de su competencia, expedirán o actualizarán su respectiva normatividad para retener y enterar al Fondo Impulso Jalisco el monto correspondiente a cinco al millar del monto total de los contratos y/o pedidos que sean adjudicados bajo cualquier modalidad, en un plazo no mayor a 60 días naturales, contados a partir del día siguiente en que entre en vigor el presente decreto.
+En el caso de los Ayuntamientos de los municipios cuya población sea menor a los 200 mil habitantes, el plazo al que se refiere al (sic) párrafo anterior será de hasta 240 días naturales contados a partir del día siguiente en que entre en vigor el presente decreto.
+CUARTO. Una vez instalado el Comité Técnico y a partir de esa fecha, el Titular del mismo deberá de rendir un informe semestral ante este Comité Técnico para exponer avances y destino de los recursos.
