@@ -1,0 +1,4 @@
+P.O. 18 DE MARZO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO 28313/LXII/21 DEL CONGRESO DEL ESTADO QUE REFORMA LOS ARTÍCULOS 6 Y 13 Y SE ADICIONAN LOS ARTÍCULOS 6 BIS Y 6 TER A LA LEY DE BENEMÉRITOS DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. Se instruye al Poder Ejecutivo del Estado, al Ayuntamiento de Guadalajara y a la Comisión para Honrar la Memoria de los Beneméritos del Estado de Jalisco, a fin de que ejecuten las acciones necesarias en el ámbito de sus atribuciones, para que a la brevedad se honre a la totalidad de los Beneméritos del Estado, cuales quiera (sic) que sea el acto jurídico que les haya conferido ese carácter, acorde a lo dispuesto por los artículos 6, 14 segundo párrafo, 17, fracción VI y relativos de la Ley de Beneméritos del Estado de Jalisco.
