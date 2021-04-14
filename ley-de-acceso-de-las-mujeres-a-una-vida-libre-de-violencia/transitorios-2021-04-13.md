@@ -1,0 +1,3 @@
+P.O. 13 DE ABRIL DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 28333/LXII/21 QUE REFORMA LA FRACCIÓN V DEL ARTÍCULO 25 Y EL PÁRRAFO TERCERO DEL ARTÍCULO 49 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE JALISCO".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
