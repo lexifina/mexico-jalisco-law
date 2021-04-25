@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 27 DE OCTUBRE DE 2020)
+Artículo 23-Sexies.
+1. Los sujetos obligados podrán utilizar las plataformas de internet denominadas "Redes Sociales Digitales" para la difusión de la información pública derivada del cumplimiento de sus funciones y del ejercicio de sus atribuciones, con el objeto de promover la cultura de la transparencia y los ejercicios de rendición de cuentas, independientemente de la obligación de publicar la información en los portales de transparencia correspondientes.
+2. Cuando los sujetos obligados determinen utilizar las redes sociales digitales para difundir información pública, se sujetarán para su utilización, en lo aplicable, a la normatividad en materia de transparencia, acceso a la información pública, protección de datos personales, de archivos, de comunicación social y electoral.
