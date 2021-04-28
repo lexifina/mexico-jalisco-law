@@ -1,0 +1,3 @@
+P.O. 27 DE ABRIL DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 28380/LXII/21 QUE REFORMA LOS ARTÍCULOS 2842 Y 2843 (SIC) Y ADICIONA LOS ARTÍCULOS 180 BIS, 199 BIS, 231 BIS, 1018 BIS, 1025 BIS Y 2841 BIS DEL CÓDIGO CIVIL DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
