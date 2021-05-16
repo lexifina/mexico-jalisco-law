@@ -1,0 +1,3 @@
+P.O. 15 DE MAYO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 28379/LXII/21 QUE REFORMA EL NUMERAL 6 DEL ARTÍCULO 19 DE LA LEY DE PROTECCIÓN DE DATOS PERSONALES EN POSESIÓN DE SUJETOS OBLIGADOS DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
