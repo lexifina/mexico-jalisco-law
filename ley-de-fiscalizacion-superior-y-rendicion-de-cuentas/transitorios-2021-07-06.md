@@ -1,0 +1,4 @@
+P.O. 6 DE JULIO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 28413/LXII/21 QUE MODIFICA LA LEY DEL GOBIERNO Y LA ADMINISTRACIÓN PÚBLICA MUNICIPAL DEL ESTADO DE JALISCO; LA LEY DE CATASTRO MUNICIPAL DEL ESTADO DE JALISCO; LA LEY DE COORDINACIÓN FISCAL DEL ESTADO DE JALISCO Y SUS MUNICIPIOS; LA LEY DE DEUDA PÚBLICA Y DISCIPLINA FINANCIERA DEL ESTADO DE JALISCO Y SUS MUNICIPIOS; LA LEY DE FISCALIZACIÓN SUPERIOR Y RENDICIÓN DE CUENTAS DEL ESTADO DE JALISCO Y SUS MUNICIPIOS Y LA LEY DE HACIENDA MUNICIPAL; ORDENAMIENTOS TODOS DEL ESTADO DE JALISCO".]
+Primero. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+Segundo. Los ayuntamientos del Estado de Jalisco, antes del 31 de diciembre de 2021, deberán realizarlas (sic) adecuaciones reglamentarias, normativas y administrativas necesarias para la implementación del presente decreto.
