@@ -1,0 +1,3 @@
+P.O. 6 DE JULIO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 28326/LXII/21 QUE REFORMA LOS ARTÍCULOS 62 FRACCIÓN X, RECORRIÉNDOSE LAS FRACCIONES SUBSECUENTES Y EL 64, AMBOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".

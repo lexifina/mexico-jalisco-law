@@ -1,0 +1,4 @@
+P.O. 6 DE JULIO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO 28327/LXII/21 QUE ADICIONA EL TÍTULO DÉCIMO SEGUNDO A LA LEY ORGÁNICA DEL PODER JUDICIAL DEL ESTADO DE JALISCO; QUE REFORMA LOS ARTÍCULOS 1, 2, 3 Y 8 TODOS DE LA LEY DE FIRMA ELECTRÓNICA AVANZADA, PARA EL ESTADO DE JALISCO Y SUS MUNICIPIOS, Y QUE REFORMA LOS ARTÍCULOS 52, 82, 282 BIS, 284 Y 290 Y SE ADICIONA EL TÍTULO DÉCIMOQUINTO, TODOS DEL CÓDIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco". Se derogan todas las disposiciones que se opongan al presente decreto.
+SEGUNDO. El Supremo Tribunal de Justicia, así como el Consejo de la Judicatura, ambos del Estado de Jalisco, deberán realizar las acciones que correspondan, a efecto que los juicios en línea inicien su operación a más tardar doce meses después de la entrada en vigor del presente decreto.
