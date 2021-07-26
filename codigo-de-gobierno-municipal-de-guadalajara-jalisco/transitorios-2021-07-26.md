@@ -1,0 +1,8 @@
+G.M. 26 DE JULIO DE 2021.
+[N. DE E. TRANSITORIOS DE "LAS REFORMAS AL CÓDIGO DE GOBIERNO MUNICIPAL DE GUADALAJARA".]
+Primero. El presente ordenamiento entrará en vigor el día de su publicación en la Gaceta Municipal de Guadalajara.
+Segundo. Los puntos de ordenamiento Quinto, Sexto y Séptimo entrarán en vigor cuando se emita la declaratoria de extinción del Organismo Público Descentralizado de la Administración Pública Municipal denominado "Red de Bosques Urbanos de Guadalajara", por el Ayuntamiento y de manera particular en lo que respecta al punto Séptimo, siempre y cuando se haya concluido previamente el proceso legislativo correspondiente ante el Congreso del Estado de Jalisco.
+Tercero. El personal adscrito al Organismo Público Descentralizado de la Administración Pública Municipal denominado "Red de Bosques Urbanos de Guadalajara" será adscrito a la Coordinación de Servicios Públicos Municipales, conservando los derechos laborales adquiridos previos a la extinción del organismo en comentó.
+Cuarto. Se faculta a las y los ciudadanos, Presidente Municipal, Secretario General y Síndica, todos de este Ayuntamiento, a suscribir la documentación necesaria para el cumplimiento del presente ordenamiento.
+Quinto. Notifíquese el presente ordenamiento a la Tesorería, a la Coordinación General de Gestión Integral de la Ciudad y a la Contraloría Ciudadana, para su conocimiento.
+Sexto. Una vez publicado el presente, remítase mediante oficio un tanto de él, al Congreso del Estado de Jalisco, para los efectos ordenados en las fracciones VI y VII del artículo 42 de la Ley del Gobierno y la Administración Pública Municipal del Estado de Jalisco.
