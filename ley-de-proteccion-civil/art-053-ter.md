@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 10 DE AGOSTO DE 2019)
-Artículo 53 Ter. Las Brigadas Comunitarias, serán debidamente registradas en la Red Estatal de Brigadas y serán certificados en diversas materias de Protección Civil; bajo la coordinación y supervisión de la autoridad competente en su comunidad, en tareas de alertamiento, evacuación, búsqueda y rescate, primeros auxilios, acciones preventivas, refugios temporales y otras similares.
