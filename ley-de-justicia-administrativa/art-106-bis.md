@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 9 DE SEPTIEMBRE DE 2021)
+Artículo 106 Bis. Cuando el órgano jurisdiccional que (sic) deseche o desestime una recusación advierta que existan elementos suficientes que demuestren que su promoción se haya dirigido a entorpecer o dilatar el procedimiento en cuestión, se impondrá multa de treinta a trescientas veces el valor diario de la Unidad de Medida y Actualización.

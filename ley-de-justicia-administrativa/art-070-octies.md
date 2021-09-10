@@ -1,0 +1,6 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 9 DE SEPTIEMBRE DE 2021)
+Artículo 70 Octies. Tratándose del incumplimiento de la resolución que conceda la suspensión de la ejecución del acto impugnado o alguna otra de las medidas cautelares previstas en esta Ley, procederá la queja mediante escrito interpuesto en cualquier momento hasta antes de que se dicte sentencia definitiva.
+En el escrito en que se interponga la queja se expresarán los hechos por los que se considera que se ha dado el incumplimiento y en su caso, se acompañarán los documentos en que consten las actuaciones de la autoridad que pretenda vulnerar la suspensión o la medida cautelar otorgada.
+El Magistrado pedirá un informe a quien se impute el incumplimiento, que deberá rendir dentro del plazo de tres días, en el que, en su caso, se justificará el acto o la omisión que provocó la queja.
+Vencido dicho plazo, con informe o sin él, el Magistrado Instructor resolverá en un plazo máximo de cinco días.
+Si la Sala resuelve que hubo incumplimiento, declarará la nulidad de las actuaciones realizadas en violación a la suspensión o de otra medida cautelar otorgada; y ordenará su cumplimiento en los términos del artículo que antecede.

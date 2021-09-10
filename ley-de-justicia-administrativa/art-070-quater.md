@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 9 DE SEPTIEMBRE DE 2021)
+Artículo 70 Quáter. Cuando apareciere debidamente probado que ya se resolvió sobre las medidas cautelares en otro juicio de nulidad, promovido con anterioridad por la misma parte demandante o por otra persona en su nombre o representación, contra el mismo acto impugnado y contra las mismas autoridades, se declarará sin materia el incidente de suspensión.

@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 9 DE SEPTIEMBRE DE 2021)
+Artículo 70 Ter. En los casos en que las medidas cautelares positivas o la suspensión del acto impugnado sean procedentes, se concederá en forma tal (sic), que no impida la continuación del procedimiento en el asunto que haya motivado el acto o resolución impugnada, hasta dictarse resolución firme en él; a no ser que la continuación de dicho procedimiento deje irreparablemente consumado el daño o perjuicio que pueda ocasionarse a la parte demandante.

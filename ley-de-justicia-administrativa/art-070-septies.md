@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 9 DE SEPTIEMBRE DE 2021)
+Artículo 70 Septies. Para la ejecución y cumplimiento de las resoluciones que otorguen la suspensión del acto impugnado, así como todas las medidas cautelares que se prevén en este capítulo; se observarán las disposiciones a que se refiere (sic) los artículos 10 y 104 de esta Ley; pudiendo este Tribunal en su caso, cuando la naturaleza del acto lo permita, hacer cumplir la resolución correspondiente

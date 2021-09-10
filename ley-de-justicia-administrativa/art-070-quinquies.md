@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 9 DE SEPTIEMBRE DE 2021)
+Artículo 70 Quinquies. Las medidas cautelares otorgadas de manera provisional del acto o resolución impugnada dejarán de surtir sus efectos a partir del momento en que se dicte la interlocutoria que resuelva en definitiva si se otorga o se niega lo peticionado, o bien, transcurra el término improrrogable de quince días contados a partir del día siguiente en que haya sido concedida; lo que ocurra primero.

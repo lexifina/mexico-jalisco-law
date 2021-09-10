@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. ADICIONADO], P.O. 9 DE SEPTIEMBRE DE 2021)
+Artículo 70 Sexies. La resolución que conceda o niegue las medidas cautelares de manera definitiva, podrá modificarse o revocarse de oficio o a petición de parte, cuando ocurra un hecho superveniente que lo motive, mientras no se pronuncie sentencia ejecutoria en el juicio en materia administrativa, debiendo tramitarse en la misma forma que el incidente a que alude el presente capitulo.
