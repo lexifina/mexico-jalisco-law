@@ -1,0 +1,18 @@
+(ADICIONADO, G.M. 1 DE OCTUBRE DE 2021)
+Artículo 150 Unvicies. A la Unidad de Visitaduría le corresponde supervisar que el funcionamiento de las unidades que integran la Dirección de Justicia Cívica Municipal se apegue a la normatividad aplicable. Actividad que realiza a través de las y los visitadores municipales, quienes cuentan con las siguientes atribuciones:
+I. Tomar conocimiento de las quejas sobre demoras, excesos o deficiencias en el despacho de los asuntos que son competencia de las Unidades que integran la Dirección de Justicia Cívica Municipal;
+II. Practicar visitas periódicas a las unidades para verificar su funcionamiento;
+III. Comprobar el registro de asistencia del personal adscrito al área visitada;
+IV. Verificar que los objetos y valores relacionados, y bajo resguardo, se encuentren asegurados y en sitio seguro;
+V. Revisar la integración y actualización de los libros de gobierno;
+VI. Verificar que el entero de las multas impuestas se realice en los términos de la normatividad aplicable y conforme al procedimiento respectivo;
+VII. Verificar que los asuntos a cargo de las facilitadoras o facilitadores sociales se encuentren atendidos e integrados conforme a derecho;
+VIII. Hacer constar el número de personas detenidas por faltas administrativas y remitidas a la Unidad de Prevención Social de la Violencia, así como las y los menores canalizados a las instituciones competentes;
+IX. Examinar los expedientes integrados con motivo de las audiencias, las faltas administrativas y los acuerdos dictados y cumplidos, la calificación de las faltas administrativas y las resoluciones, de acuerdo a lo establecido en la normatividad aplicable;
+X. Revisar los acuerdos de mediación o conciliación, los convenios celebrados, así como las resoluciones y los procedimientos respectivos;
+XI. Verificar que los asuntos referentes a niñas, niños y adolescentes se hubiesen derivado a las instancias competentes, a través de la Unidad de Prevención Social de la Violencia, con la intervención de la o el agente de protección del menor;
+XII. Constatar que se hubiesen respetado los derechos humanos de las y los presuntos infractores; y
+XIII. Elaborar por triplicado acta circunstanciada de toda visita, una para la persona titular del área visitada, otra para la Directora o Director de Justicia.
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 1 DE OCTUBRE DE 2021)
+Subsección VI (SIC)
+Dirección de lo Jurídico de la Comisaría de la Policía de Guadalajara
