@@ -1,4 +1,5 @@
-ARTÍCULO OCTAVO. El Titular del Poder Ejecutivo del Estado, a través de la Secretaría deberá realizar las gestiones necesarias para que opere la ventanilla única de trámites conforme a la disponibilidad y suficiencia presupuestal.
+(REFORMADO, P.O. 18 DE NOVIEMBRE DE 2021)
+ARTÍCULO OCTAVO. El Titular del Poder Ejecutivo del Estado, a través de la Agencia Estatal de Entretenimiento de Jalisco, deberá realizar las gestiones necesarias para que opere la ventanilla única de trámites conforme a la disponibilidad y suficiencia presupuestal.
 SALÓN DE SESIONES DEL CONGRESO DEL ESTADO
 GUADALAJARA. JALISCO, 16 DE FEBRERO DE 2021
 Diputada Presidenta
@@ -19,3 +20,4 @@ Gobernador Constitucional del Estado de Jalisco
 JUAN ENRIQUE IBARRA PEDROZA
 Secretario General de Gobierno
 (RÚBRICA)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

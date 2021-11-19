@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 18 DE NOVIEMBRE DE 2021)
+Artículo 31 bis.
+1. Las obras cinematográficas, audiovisuales o fotográficas que se realicen en inmuebles de propiedad privada, donde los vehículos de producción estén estacionados en lugares permitidos y no impidan el paso total o parcial peatonal, tránsito vehicular o vía pública no requieren para su filmación o grabación de ningún aviso o permiso.
+2. Tampoco requerirá de aviso o permiso, la realización de las obras cinematográficas, audiovisuales y fotográficas en bienes de uso común del Estado o en vía pública, siempre que no impidan el paso parcial o total de vías principales de tránsito vehicular o las actividades y funciones para las que haya sido destinado el bien correspondiente y se trate de obras:
+I. Periodísticas, de reportaje o documental;
+II. Producciones estudiantiles con fines académicos, siempre que cuenten con una carta aval emitida por la institución educativa correspondiente;
+III. Turísticas o para uso personal que se registren en cualquier variedad de formatos audiovisuales; y
+IV. Las que realice la Administración Pública Estatal y Municipal.

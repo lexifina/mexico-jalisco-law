@@ -1,1 +1,1 @@
-ARTÍCULO CUARTO. El Titular del Poder Ejecutivo del Estado deberá formalizar el contrato del Fondo Filma en Jalisco bajo el esquema de Fideicomiso en los términos del presente Decreto y de las disposiciones aplicables correspondientes.
+ARTÍCULO CUARTO. (DEROGADO, P.O. 18 DE NOVIEMBRE DE 2021)

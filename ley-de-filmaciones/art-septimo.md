@@ -1,1 +1,1 @@
-ARTÍCULO SÉPTIMO. El Ejecutivo Estatal, a través de la Secretaría deberá expedir y publicar el Programa Estatal de Fomento, Promoción y Desarrollo de las Obras Cinematográficas, Audiovisuales y Fotográficas dentro de los 180 días naturales siguientes al inicio de la vigencia de la Ley que se expide mediante el presente decreto.
+ARTÍCULO SÉPTIMO. (DEROGADO, P.O. 18 DE NOVIEMBRE DE 2021)
