@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2021)
+Artículo 30 Bis 10.
+1. Si el pleno de la Asamblea declara que ha lugar a proceder penalmente en contra del servidor público denunciado, éste quedará inmediatamente separado de su empleo, cargo o comisión y sujeto a la jurisdicción de los tribunales competentes. En caso negativo, no habrá lugar a procedimiento ulterior mientras subsista la inmunidad penal por el desempeño del empleo cargo o comisión, y se declarará que el término para el ejercicio de la acción penal queda en suspenso en tanto el servidor público continúe en funciones; la resolución en la que se niegue la declaración de procedencia de juicio penal no será obstáculo para que el procedimiento continúe su curso a partir del momento en que el servidor público denunciado deje de estar en funciones.
+2. La declaratoria del Congreso de ninguna manera prejuzga sobre los fundamentos de la denuncia.
+3. Por ningún motivo, las resoluciones de declaración de procedencia del juicio penal podrán tener trascendencia jurídica en el proceso penal seguido ante las autoridades jurisdiccionales ordinarias.
