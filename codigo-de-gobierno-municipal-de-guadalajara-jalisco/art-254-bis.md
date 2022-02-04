@@ -8,5 +8,6 @@ V. Coadyuvar con las dependencias que forman parte de la administración públic
 VI. Definir, dirigir y supervisar la correcta aplicación de las políticas de calidad de la administración pública municipal;
 VII. Desarrollar una cultura de calidad en el servicio, basada en principios éticos y sociales, así como la promoción e implementación de la mejora continua en trámites y servicios, métodos y procesos; y
 VIII. Promover al interior de las dependencias de la administración pública municipal los principios de gestión de calidad y optimización de procesos para la disminución de los trámites y tiempos de respuesta de atención al ciudadano, asegurando una estructura organizacional acorde con ello.
-Capítulo IX
-Órganos Desconcentrados
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 3 DE FEBRERO DE 2022)
+Subsección XIII
+Dirección de Corresponsabilidad Social

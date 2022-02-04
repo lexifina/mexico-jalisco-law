@@ -11,6 +11,6 @@ VIII. Coordinar sus actividades con·la Tesorería y con la Dirección de Inspec
 IX. Crear un programa de integración del comercio informal a la economía formal, usando los espacios disponibles en los mercados municipales y la conversión al modelo de comercio compatible con los planes de ordenamiento municipales;
 X. Establecer un programa operativo para el desarrollo del comercio en días conmemorativos y demás eventos de concentración masiva en la vía pública; y
 XI. Diseñar e implementar en conjunto con otras dependencias del Municipio soluciones en materia de fisonomía de los corredores de comercio de la ciudad.
-(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 1 DE OCTUBRE DE 2021)
+(DEROGADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 3 DE FEBRERO DE 2022)
 Subsección XIII
 Dirección de Corresponsabilidad Social

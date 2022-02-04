@@ -1,0 +1,9 @@
+G.M. 3 DE FEBRERO DE 2022.
+[N. DE E. TRANSITORIOS DE LAS "REFORMAS AL CÓDIGO DE GOBIERNO MUNICIPAL DE GUADALAJARA".]
+Primero. Publíquese el presente ordenamiento en la Gaceta Municipal de Guadalajara en términos de lo dispuesto en el artículo 42 fracciones IV y V de la Ley del Gobierno y la Administración Pública Municipal del Estado de Jalisco.
+Segundo. El presente ordenamiento entrará en vigor el día siguiente de su publicación en la Gaceta Municipal de Guadalajara.
+Tercero. Se derogan todas las disposiciones legales y administrativas que contravengan el presente ordenamiento.
+Cuarto. Las referencias o menciones contenidas en otros reglamentos y en cualquier disposición municipal, respecto de la Dirección de Mantenimiento Urbano, la cual cambia de denominación, así como de la adscripción de la Dirección de Corresponsabilidad Social, por virtud de las reformas que se aprueban al Código de Gobierno Municipal de Guadalajara, se entenderán referidas a las que respectivamente se indican en el mismo.
+Quinto. La Dirección de Corresponsabilidad Social, seguirá conservando sus recursos humanos y materiales, así como los documentos, archivo y, en general todos los bienes muebles que la dependencia se encuentre utilizando y estén bajo su resguardo para la atención de los asuntos a su cargo.
+Sexto. Se instruye a la Dirección de Corresponsabilidad Social y a la Dirección de Mejoramiento Urbano para que en un plazo no mayor a 40 días naturales contados a partir de la publicación del presente ordenamiento, actualicen la documentación y formatos respectivos mediante los cuales ejercen sus atribuciones.
+Séptimo. Una vez publicado el presente ordenamiento, remítase una copia al Congreso del Estado de Jalisco para efectos de lo ordenado en el artículo 42 fracción VII de la Ley del Gobierno y la Administración Pública Municipal de Guadalajara.
