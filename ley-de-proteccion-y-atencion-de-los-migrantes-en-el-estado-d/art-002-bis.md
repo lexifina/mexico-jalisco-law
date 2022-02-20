@@ -1,2 +1,4 @@
 (ADICIONADO, P.O. 8 DE AGOSTO DE 2017)
 Artículo 2 Bis. El gobierno del Estado de Jalisco y los Municipios procurarán, con el apoyo del Gobierno Federal y mediante la cooperación internacional, especialmente económica y técnica, que todas las personas extranjeras sin importar su estatus migratorio, residentes o en tránsito en su territorio, gocen de las garantías consagradas en el artículo 4 de la Constitución Política del Estado de Jalisco.
+(REFORMADO [N. DE E. ADICIONADO], P.O. 19 DE FEBRERO DE 2022)
+En el caso de niñas, niños y adolescentes migrantes se garantizará, de manera adicional a lo establecido en el párrafo anterior, los derechos y principios establecidos en la Ley de Migración, Ley General de los Derechos de Niñas, Niños y Adolescentes, la Ley de los Derechos de Niñas, Niños y Adolescentes en el Estado de Jalisco, y sus reglamentos.
