@@ -1,0 +1,7 @@
+G.M. 5 DE ABRIL DE 2022.
+[N. DE E. TRANSITORIOS DE LAS "REFORMAS AL CÓDIGO DE GOBIERNO MUNICIPAL DE GUADALAJARA".]
+Primero. Publíquese lo conducente del presente ordenamiento en la Gaceta Municipal de Guadalajara.
+Segundo. El presente ordenamiento entrará en vigor al día siguiente de su publicación en la Gaceta Municipal de Guadalajara.
+Tercero. Se instruye al Organismo Público Descentralizado de la Administración Pública Municipal, denominado Consejo de Colaboración Municipal de Guadalajara para que en un plazo no mayor a noventa días a partir del día siguiente al de la publicación de este ordenamiento, efectúe las modificaciones administrativas y reglamentarias correspondientes a fin de armonizarlas con lo dispuesto en el presente, incluyendo la denominación de la sala de juntas respectiva.
+Cuarto. Las referencias o menciones contenidas en otros reglamentos, disposiciones municipales, convenios y demás instrumentos jurídicos respecto al Organismo Público Descentralizado de la Administración Pública Municipal, denominado Consejo Social de Cooperación para el Desarrollo Urbano, se entenderán referidas al Organismo Público Descentralizado de la Administración Pública Municipal, denominado Consejo de Colaboración Municipal de Guadalajara.
+Quinto. Una vez publicadas las presentes reformas remítanse un tanto de las mismas al Congreso del Estado de Jalisco, para los efectos contemplados en el artículo 42, fracción VII de la Ley del Gobierno y la Administración Pública Municipal del Estado de Jalisco.

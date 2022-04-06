@@ -25,7 +25,7 @@ I. Analizar los proyectos que derivan de la Coordinación de Proyectos Estratég
 II. Coadyuvar con las demás dependencias para consolidar y vincular los proyectos que representan derrama económica creciente en la Ciudad;
 III. Establecer líneas de acciones, estrategias de gestión y coordinación para formalizar la vinculación de los proyectos estratégicos aprobados con las dependencias competentes del Gobierno Municipal que permitan su ejecución; y
 IV. Establecer el proceso de seguimiento y vigilancia del estado de los proyectos estratégicos aprobados por la Coordinación de Proyectos Estratégicos.
-(REFORMADO, G.M. 1 DE ABRIL DE 2022)
+(REFORMADO [N. DE E. REPUBLICADO], G.M. 5 DE ABRIL DE 2022)
 Se encuentra sectorizado a la Coordinación el Organismo Público Descentralizado denominado Consejo de Colaboración Municipal de Guadalajara.
 (ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 1 DE OCTUBRE DE 2021)
 Sección Décima Tercera
