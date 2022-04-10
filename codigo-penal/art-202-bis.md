@@ -22,5 +22,3 @@ VI. Agreda, obstruya, impida o trate de impedir el correcto desarrollo de sus ac
 No serán consideradas como discriminatorias todas aquellas medidas tendientes a la protección de los grupos vulnerables, de conformidad a la ley.
 (REFORMADO [N. DE E. REPUBLICADO], P.O. 24 DE ABRIL DE 2020)
 Al servidor público que, por las razones previstas en este artículo, niegue o retarde a una persona un trámite, servicio o prestación al que tenga derecho, se le aumentará en una mitad la pena prevista en el presente artículo y además se le impondrá destitución e inhabilitación para el desempeño de cualquier cargo, empleo o comisión públicos hasta por el mismo tiempo de la pena de prisión impuesta.
-CAPITULO V
-Reglas Generales
