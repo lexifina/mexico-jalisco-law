@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 28 DE ABRIL DE 2022)
+Art. 289 Bis. Comete el delito de ecocidio quien:
+I. Provoque la destrucción o pérdida total de un ecosistema que abarque una superficie de cuando menos diez hectáreas;
+III. (SIC) Provoque un daño a un ecosistema cuya afectación y sus impactos al menos cuatro meses.
+Al responsable del delito de ecocidio se le impondrá una pena de tres a diez años de prisión y una multa de quinientas a cincuenta mil veces el valor diario de la Unidad de Medida y Actualización.
+Las penas anteriores aumentaran en un tercio cuando el ecocidio sea en áreas naturales protegidas, así declaradas por la autoridad competente.
