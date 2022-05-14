@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 13 DE MAYO DE 2022)
+Artículo 47 Bis. Una vez adjudicado un proyecto, el Ejecutivo del Estado o el Presidente Municipal, constituirá mediante acuerdo, un Comité Administrador del proyecto, de carácter interinstitucional y multidisciplinario, para el seguimiento, evaluación y verificación del cumplimiento de los compromisos asumidos por las partes.
+El Comité Administrador se integrará al menos con las dependencias normativas y ejecutoras que tengan relación con los aspectos técnicos, jurídicos y financieros del proyecto y contará con las atribuciones que se establecen en esta ley y el Reglamento.
+Dentro de los diez días hábiles siguientes a que se integre el Comité Administrador, éste deberá informar al Congreso del Estado la adjudicación del proyecto, remitiendo para tal efecto el expediente respectivo, y rendirá semestralmente un informe sobre los avances y la situación general del proyecto.

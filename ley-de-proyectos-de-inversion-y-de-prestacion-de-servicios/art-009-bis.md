@@ -1,16 +1,1 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE MAYO DE 2019)
-Artículo 9° Bis. Toda persona inscrita en el padrón de proveedores y/o contratistas del Estado de Jalisco o en caso de las entidades municipales en el padrón de proveedores y/o de contratista (sic) del municipio correspondiente tendrá derecho a proponer al Estado, por conducto de la Secretaría de Administración del Estado de Jalisco, o a los Municipios por conducto de sus Tesorerías Municipales, la realización de uno o más proyectos bajo la modalidad de Asociación Público Privada; en cuyo caso, acreditará además de las previsiones anteriores las economías, ventajas y beneficio directo en aumento de cobertura o calidad de servicios públicos de su propuesta.
-(ADICIONADO, P.O. 22 DE SEPTIEMBRE DE 2015)
-Formalizada la presentación de una oferta no solicitada, la persona de que se trate podrá requerir y obtener la información pública necesaria para la elaboración del proyecto y análisis financiero de prefactibilidad que sea necesario del sector público, así como a participar con voz, pero sin voto, en las reuniones de Grupo de trabajo Administrador del proyecto que se conforme para el análisis y evaluación de las mismas.
-(ADICIONADO, P.O. 22 DE SEPTIEMBRE DE 2015)
-La recepción de una oferta no solicitada, su análisis, estudio, proyección, presupuestación y presentación para aprobación no generará derecho alguno a la persona promovente ni obligaciones de ningún tipo para el Estado o entidades que reciban la misma ni se entenderá vinculante o sujeto a afirmativa o negativa ficta alguna.
-(ADICIONADO, P.O. 22 DE SEPTIEMBRE DE 2015)
-La inversión que en estudios, proyecciones técnicas financieras, anteproyectos constructivos, arquitectónicos o de cualquier otra índole correrán a cargo del ofertante, por lo que no le serán reembolsables, sin perjuicio del derecho a incluir su monto dentro del monto total del financiamiento del proyecto y de la contraprestación planteada.
-(REFORMADO, P.O. 11 DE MAYO DE 2019)
-En caso de las entidades estatales la Secretaría de Administración del Estado de Jalisco, emitirá lineamientos generales para la recepción de ofertas no solicitadas, su registro, su análisis objetivo e imparcial, así como, en su caso, su desechamiento o reserva, así como solución de controversias entre los ofertantes para el caso de prelación en proyectos con objeto (sic) similares o complementarios, en el caso de las entidades Municipales los lineamientos generales los emitirán sus Ayuntamientos con aprobación de mayoría calificada.
-(ADICIONADO, P.O. 22 DE SEPTIEMBRE DE 2015)
-Cualquier modificación a un contrato de prestación de servicios, requerirá de la autorización previa de la Secretaría, tratándose de dependencias y entidades estatales.
-(ADICIONADO, P.O. 22 DE SEPTIEMBRE DE 2015)
-Tratándose de Ayuntamientos, las modificaciones deberán ser autorizadas con mayoría calificada, contando con la opinión previa del Tesorero municipal o encargado de la Hacienda Pública Municipal.
-(ADICIONADO, P.O. 22 DE SEPTIEMBRE DE 2015)
-En caso de que la modificación implique exceder la afectación patrimonial plurianual establecida a través del decreto aprobatorio, a que se refiere el artículo 15 de esta ley, se requerirá de la aprobación previa del Congreso del Estado.
+Artículo 9° Bis. (DEROGADO, P.O. 13 DE MAYO DE 2022)
