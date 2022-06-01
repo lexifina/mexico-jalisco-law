@@ -1,0 +1,3 @@
+P.O. 31 DE MAYO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO 28780/LXIII/22 QUE MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 31, 32, 33, 35, 36, 38 Y 69 DE LA LEY DE FISCALIZACIÓN SUPERIOR Y RENDICIÓN DE CUENTAS DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
