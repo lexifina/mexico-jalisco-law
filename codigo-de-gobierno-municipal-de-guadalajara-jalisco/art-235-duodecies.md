@@ -6,6 +6,6 @@ III. Ser vínculo entre la administración pública municipal y las comunidades 
 IV. Fomentar el respeto a la diversidad cultural individual y colectiva de los pueblos originarios;
 V. Promover la vinculación con los sectores sociales y privado para el rescate y preservación de las manifestaciones culturales en beneficio de las personas de pueblos originarios que residen en el municipio; y
 VI. Proponer e implementar mecanismos de participación ciudadana que involucren a los pueblos originarios en la toma de decisiones del municipio.
-(REFORMADA EN SU NÚMERACIÓN [N. DE E. ANTES SECCIÓN SEXTA], G.M. 1 DE OCTUBRE DE 2021)
-Sección Séptima
-Coordinación General de Gestión Integral de la Ciudad
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 31 DE MAYO DE 2022)
+Subsección VII
+Dirección de Diversidad Sexual
