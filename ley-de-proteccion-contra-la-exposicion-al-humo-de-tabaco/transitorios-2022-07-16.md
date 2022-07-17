@@ -1,0 +1,4 @@
+P.O. 16 DE JULIO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 28800/LXIII/22 QUE REFORMA LOS ARTÍCULOS 2 FRACCIONES II, III Y VII, 4 FRACCIÓN VI Y VII, 12, 17, 18 PÁRRAFOS PRIMERO Y SEGUNDO, 23 FRACCIÓN I Y 33 PÁRRAFO PRIMERO DE LA LEY DE PROTECCIÓN CONTRA LA EXPOSICIÓN AL HUMO DEL TABACO PARA EL ESTADO DE JALISCO".]
+Primero. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+Segundo. En términos de lo dispuesto por los artículos 12 y 17 del presente decreto, los propietarios, administradores o responsables de los establecimientos o lugares con acceso al público, áreas de trabajo, públicas y privadas, deberán ubicar las zonas exclusivas para fumar en espacios no interiores al aire libre en un plazo no mayor a 120 días naturales posteriores a la publicación del presente decreto en el periódico oficial "El Estado de Jalisco".
