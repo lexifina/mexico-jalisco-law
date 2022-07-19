@@ -5,6 +5,6 @@ II. Liderar los procesos de investigación de los proyectos estratégicos del mu
 III. Diseñar y coordinar el proceso de generación de contenidos desde la ideación hasta la creación, la distribución, el análisis y el mantenimiento;
 IV. Diseñar y coordinar el proceso de revisión y aprobación de contenidos; y
 V. Monitorear y medir regularmente los contenidos, y proponer recomendaciones para mejorar el rendimiento.
-(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 1 DE OCTUBRE DE 2021)
+(DEROGADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 18 DE JULIO DE 2022)
 Sección Sexta
 Dirección de Servicios Médicos Municipales

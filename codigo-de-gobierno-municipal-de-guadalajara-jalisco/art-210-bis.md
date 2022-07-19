@@ -16,7 +16,8 @@ XIII. Atender, llevar el control y turnar la correspondencia presentada ante ofi
 XIV. Dar mantenimiento al sistema homologado de recepción, canalización y término de solicitudes de servicio;
 XV. Asegurarse de que en todo momento se mantengan activos los canales de recepción de solicitudes de servicio para los ciudadanos; y
 XVI. Orientar y concientizar a la ciudadanía sobre la importancia de generar solicitudes de servicios sobre asuntos que sean responsabilidad del Municipio.
-Para la atención de los asuntos de su competencia, cuenta con las áreas de Evaluación y Seguimiento, Planeación Institucional, Atención Ciudadana, Gestión de Coordinación Metropolitana, de Creación y Revisión de Contenidos, de Mejora Regulatoria, y de Servicios Médicos Municipales.
+(REFORMADO, G.M. 18 DE JULIO DE 2022)
+Para la atención de los asuntos de su competencia, cuenta con las áreas de Evaluación y Seguimiento, Planeación Institucional, Atención Ciudadana, Gestión de Coordinación Metropolitana, de Creación y Revisión de Contenidos, y de Mejora Regulatoria.
 Se encuentra sectorizado a la Jefatura de Gabinete el Organismo Público Descentralizado de la Administración Pública Municipal denominado Sistema para el Desarrollo Integral de la Familia de Guadalajara.
 (ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 1 DE OCTUBRE DE 2021)
 Sección Primera

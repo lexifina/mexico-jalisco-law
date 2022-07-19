@@ -8,6 +8,6 @@ V. Evaluar el impacto de los programas y proyectos municipales con un enfoque de
 VI. Impulsar proyectos y programas que mejoren las condiciones de los entornos recreativos y educativos de las niñas, niños y adolescentes en el municipio;
 VII. Impulsar que los espacios públicos del municipio cuenten con las condiciones necesarias que estimulen su uso y disfrute por parte niñas, niños y adolescentes; y
 VIII. Promover que los programas y proyectos municipales incorporen el principio de igualdad sustantiva entre niñas y niños.
-(REFORMADA DENOMINACIÓN, G.M. 1 DE OCTUBRE DE 2021)
-Sección Quinta
-Coordinación General de Desarrollo Económico
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 18 DE JULIO DE 2022)
+Subsección X
+Dirección de Servicios Médicos Municipales
