@@ -11,6 +11,6 @@ VIII. Colaborar en coordinación con las dependencias competentes en la implemen
 IX. Autorizar, apoyar y evaluar el desarrollo y cumplimiento de los programas de enseñanza, educación continua y adiestramiento en el servicio de salud;
 X. Coadyuvar y asesorar a las dependencias y entidades de la administración pública municipal para que las oficinas y edificios públicos del Municipio obtengan la certificación como entornos favorables a la salud, así como para que conserven dicha certificación; y
 XI. Asesorar y colaborar, en coordinación con la dependencia municipal de Protección Civil, a la Administración pública en la implementación y operación de sus respectivas Comisiones de Seguridad e Higiene.
-(REFORMADA DENOMINACIÓN, G.M. 1 DE OCTUBRE DE 2021)
-Sección Quinta
-Coordinación General de Desarrollo Económico
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 30 DE AGOSTO DE 2022)
+Subsección XI
+Dirección de Difusión Artística en Barrios de Guadalajara
