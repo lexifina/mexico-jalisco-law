@@ -1,0 +1,4 @@
+P.O. 10 DE SEPTIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 28808/LXIII/22 POR EL QUE "SE CORRIGE EL ERROR DE NUMERACIÓN DE LA REPETIDA FRACCIÓN XII, QUEDANDO COMO XIII, SE MODIFICA LA FRACCIÓN XIII, Y SE LA ADICIONA LA FRACCIÓN XIV RECORRIENDO LA SUBSECUENTE PARA QUEDAR COMO XV AL ARTÍCULO 34, SE REFORMA EL NUMERAL 2 DEL ARTÍCULO 107 Y SE MODIFICA LA FRACCIÓN VII, SE ADICIONA LA FRACCIÓN VIII RECORRIENDO LA SUBSECUENTE DEL ARTÍCULO 186 DE LA LEY DE SALUD DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. El Ejecutivo del Estado tendrá un término de 120 días contados a partir de la publicación del presente decreto para emitir el Reglamento y protocolo de atención respectivo.
