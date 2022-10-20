@@ -18,13 +18,15 @@ VI. Cuando el sujeto activo haya infligido lesiones infamantes, degradantes o mu
 VII. Cuando la víctima presente signos de violencia sexual de cualquier tipo, infligidos por el o los autores del feminicidio;
 VIII. Cuando el sujeto activo actúe por motivos de homofobia;
 IX. Cuando existan antecedentes de amenazas, acoso o lesiones del sujeto activo contra la víctima;
-(REFORMADA, P.O. 4 DE ABRIL DE 2017)
-X. Cuando el cuerpo de la víctima sea expuesto o arrojado en lugar público; o
-(REFORMADA, P.O. 4 DE ABRIL DE 2017)
-XI. Cuando la víctima haya sido incomunicada, cualquiera que sea el tiempo previo a la privación de la vida.
-(REFORMADO, P.O. 4 DE ABRIL DE 2017)
+(REFORMADA, P.O. 19 DE OCTUBRE DE 2022)
+X. Cuando el cuerpo de la víctima sea expuesto o arrojado en lugar público;
+(REFORMADA, P.O. 19 DE OCTUBRE DE 2022)
+XI. Cuando la víctima haya sido incomunicada, cualquiera que sea el tiempo previo a la privación de la vida; o
+(REFORMADA [N. DE E. ADICIONADA], P.O. 19 DE OCTUBRE DE 2022)
+XII. Cuando el sujeto activo actúe como prestador del servicio de transporte público o privado, cuente o no con autorización y registro correspondiente.
+(REFORMADO [N. DE E. REPUBLICADO], P.O. 19 DE OCTUBRE DE 2022)
 En caso de que no se acredite el feminicidio se aplicarán las reglas del homicidio o parricidio, según corresponda.
-(REFORMADO, P.O. 4 DE ABRIL DE 2017)
+(REFORMADO [N. DE E. REPUBLICADO], P.O. 19 DE OCTUBRE DE 2022)
 Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima.
 (REFORMADO, P.O. 12 DE JUNIO DE 2003)
 TITULO DECIMO SEPTIMO
