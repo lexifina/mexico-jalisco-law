@@ -29,6 +29,8 @@ XXVI. Ordenar y en su caso, llevar a cabo el retiro de anuncios espectaculares e
 XXVII. Establecer, implementar y operar una política permanente de verificación ambiental, actuando en colaboración con las dependencias y entidades públicas competentes;
 XXVIII. Llevar a cabo el desalojo de locatarios de mercados municipales o centrales de abastos, ordenado por autoridad administrativa o judicial; y en los casos que así proceda, asegurar precautoriamente los bienes y mercancías hasta en tanto se garantice el pago de las sanciones impuestas por infringir las disposiciones aplicables; y
 XXIX. Rendir los informes previos y justificados en los términos requeridos por la Sindicatura, cuando se señalen como autoridades responsables a la Dirección de Inspección y Vigilancia o a sus direcciones dependientes.
+(REFORMADA [N. DE E. ADICIONADA], G.M. 31 DE OCTUBRE DE 2022)
+XXX. Realizar visitas de inspección o verificación de conformidad con las disposiciones correspondientes, con el objeto de comprobar el estricto cumplimiento de la reglamentación municipal aplicable a la construcción, instalación, uso, mantenimiento o reparación de estructuras para sistemas de telecomunicaciones.
 (ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 1 DE OCTUBRE DE 2021)
 Subsección IV
 Dirección de Recursos de Revisión de Usos de Suelo
