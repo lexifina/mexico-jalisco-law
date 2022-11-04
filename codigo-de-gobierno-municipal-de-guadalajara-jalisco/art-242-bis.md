@@ -17,8 +17,12 @@ XIV. Proponer medidas tendientes a optimizar el funcionamiento de la dirección;
 XV. Participar en la integración del informe anual de trabajo de la coordinación general;
 XVI. Preparar los manuales de organización y de procedimientos de la dirección y sus áreas en coordinación con las dependencias competentes, enviarlos para su registro y aplicarlos;
 XVII. Resolver, de conformidad con la normatividad aplicable y el dictamen correspondiente, los trámites administrativos relativos a las solicitudes de subdivisiones, re lotificaciones, régimen de condominio y regularización de predios enclavados en el Municipio;
-XVIII. Emitir los protocolos de medidas de seguridad y atención a emergencias para edificaciones, remodelaciones y demoliciones; y
-XIX. Otorgar los vistos buenos para proyectos de edificaciones, remodelaciones y demoliciones previamente avalados por un Director o Directora Responsable de Obra, con registro municipal vigente, y que cumplan con los estudios y requerimientos técnicos aplicables en materia de seguridad estructural.
+(REFORMADA, G.M. 3 DE NOVIEMBRE DE 2022)
+XVIII. Emitir los protocolos de medidas de seguridad y atención a emergencias para edificaciones, remodelaciones y demoliciones;
+(REFORMADA, G.M. 3 DE NOVIEMBRE DE 2022)
+XIX. Otorgar los vistos buenos para proyectos de edificaciones, remodelaciones y demoliciones previamente avalados por un Director o Directora Responsable de Obra, con registro municipal vigente, y que cumplan con los estudios y requerimientos técnicos aplicables en materia de seguridad estructural; y
+(REFORMADA [N. DE E. ADICIONADA], G.M. 3 DE NOVIEMBRE DE 2022)
+XX. Supervisar de conformidad con las disposiciones correspondientes, el estricto cumplimiento de la reglamentación municipal aplicable al uso de postes o de cualquier infraestructura propiedad municipal.
 (REFORMADA SU NUMERACIÓN [N. DE E. ANTES SECCIÓN SÉPTIMA], G.M. 1 DE OCTUBRE DE 2021)
 Sección Octava
 Coordinación General de Servicios Públicos Municipales
