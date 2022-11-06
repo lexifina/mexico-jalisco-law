@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2022)
+Artículo 128 Quinquíes. De la Diabetes. Registro Nominal Estatal.
+1. La Secretaría de Salud deberá conformar y administrar el Registro Nominal Estatal de personas con diabetes en sus diferentes tipos y subtipos, con el objetivo de contar con información veraz, precisa, oportuna, completa, fidedigna y verificable, procurando la celebración de convenios con las diversas instancias y prestadores de salud, concentrando la información.
+2. La Secretaría de Salud deberá observar y resguardar la información del Registro Nominal Estatal de Personas con Diabetes en sus Diferentes Tipos y Subtipos, conforme a lo establecido en la Ley General de Protección de Datos Personales en Posesión de Sujetos Obligados, así como la propia del Estado de Jalisco y demás aplicables en la materia.
