@@ -1,0 +1,4 @@
+P.O. 8 DE NOVIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 28805/LXIII/22 QUE REFORMA LOS ARTÍCULOS 1, 2, 7 FRACCIÓN L, 9 Y 41 DE LA LEY DE VIVIENDA DEL ESTADO DE JALISCO Y LOS ARTÍCULOS 3 FRACCIÓN LV (SIC), 8 FRACCIÓN XVI Y 10 FRACCIÓN XXXII DEL CÓDIGO URBANO PARA EL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. El Gobierno del Estado, así como los Ayuntamientos del Estado de Jalisco contarán con un plazo de noventa días naturales, siguientes a la entrada en vigor del presente decreto para realizar las modificaciones a los reglamentos, disposiciones administrativas y lineamientos generales que resulten aplicables y necesarios para el correcto cumplimiento de los artículos reformados en el presente decreto.
