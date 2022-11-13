@@ -1,0 +1,4 @@
+P.O. 12 DE NOVIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 28854/LXIII/22 DEL CONGRESO DEL ESTADO QUE REFORMA EL ARTÍCULO 41 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE JALISCO, EN MATERIA DE CONSEJOS MUNICIPALES PARA PREVENIR, ATENDER, SANCIONAR Y ERRADICAR LA VIOLENCIA CONTRA LAS MUJERES".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. Los ayuntamientos deberán expedir, si aun no lo han hecho, el reglamento o, en su caso, hacer las adecuaciones normativas, en un plazo no mayor a 60 días hábiles a la entrado (sic) en vigor del presente decreto, y dar cumplimiento a lo establecido en el artículo 42, fracción VII, de la Ley del Gobierno y la Administración Pública Municipal del Estado de Jalisco.

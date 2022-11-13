@@ -33,5 +33,7 @@ En todos los casos de robo para estimar su cuantía o determinar que no es estim
 V. De cinco a 18 años de prisión y hasta mil días de multa. También podrá aplicársele la prohibición de ir a lugar determinado o vigilancia de la autoridad, hasta por un término igual al de la sanción privativa de la libertad impuesta.
 (REFORMADO, P.O. 4 DE MARZO DE 2017)
 D) Si interviene la calificativa que se consigna en la fracción IX del artículo anterior, la pena será de nueve a veinte años de prisión y multa por el importe de sesenta a ciento cincuenta veces la Unidad de Medida y Actualización, sin importar el valor del robo.
+(REFORMADO [N. DE E. ADICIONADO], P.O. 12 DE NOVIEMBRE DE 2022)
+e) Si interviene la calificativa que se consigna en la fracción XXI del artículo anterior, la pena será de diez a veintiún años de prisión y multa por el importe de setenta a ciento sesenta veces la Unidad de Medida y Actualización, sin importar el valor del robo.
 (REFORMADO [N. DE E. ADICIONADO], P.O. 4 DE MARZO DE 2017)
 Cuando concurran dos o más calificativas se sancionará con la calificativa que amerite sanción más alta.
