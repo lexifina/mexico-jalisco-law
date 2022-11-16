@@ -1,0 +1,3 @@
+P.O. 15 DE NOVIEMBRE DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO 28836/LXIII/22 DEL CONGRESO DEL ESTADO QUE REFORMA EL ARTÍCULO 1 DE LA LEY DE TURISMO PARA EL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+ÚNICO. Esta ley entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
