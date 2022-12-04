@@ -3,3 +3,6 @@ Artículo 41 Bis. Corresponde al Instituto Electoral y de Participación Ciudada
 I. Promover la cultura de la no violencia en el marco del ejercicio de los derechos políticos y electorales de las mujeres;
 II. Incorporar la perspectiva de género al monitoreo de las transmisiones sobre las precampañas y campañas electorales en los programas en radio y televisión que difundan noticias, durante los procesos electorales, y
 III. Sancionar, de acuerdo con la normatividad aplicable, las conductas que constituyan violencia política contra las mujeres en razón de género.
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, P.O. 3 DE DICIEMBRE DE 2022)
+Sección Décima Novena.
+De la Secretaría de Agricultura y Desarrollo Rural.
