@@ -13,6 +13,6 @@ X. Revisar los acuerdos de mediación o conciliación, los convenios celebrados,
 XI. Verificar que los asuntos referentes a niñas, niños y adolescentes se hubiesen derivado a las instancias competentes, a través de la Unidad de Prevención Social de la Violencia, con la intervención de la o el agente de protección del menor;
 XII. Constatar que se hubiesen respetado los derechos humanos de las y los presuntos infractores; y
 XIII. Elaborar por triplicado acta circunstanciada de toda visita, una para la persona titular del área visitada, otra para la Directora o Director de Justicia.
-(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, G.M. 1 DE OCTUBRE DE 2021)
+(REFORMADA SU DENOMINACIÓN, G.M. 6 DE MARZO DE 2023)
 Subsección VI (SIC)
-Dirección de lo Jurídico de la Comisaría de la Policía de Guadalajara
+Dirección de lo Jurídico de la Comisaría de Seguridad Ciudadana de Guadalajara
