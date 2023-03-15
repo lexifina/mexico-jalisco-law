@@ -1,0 +1,5 @@
+P.O. 14 DE MARZO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO 29146/LXIII/23 QUE REFORMA LA FRACCIÓN XVII DEL ARTÍCULO 18, ADICIONA EL NUMERAL 2 AL ARTÍCULO 160, Y MODIFICA LA DENOMINACIÓN DE LA SECCIÓN SEGUNDA DEL TÍTULO QUINTO, CAPÍTULO II, ASÍ COMO EL ARTÍCULO 163 BIS Y SE ADICIONA EL ARTICULO 163 TER DE LA LEY DE SALUD DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. El Titular del Ejecutivo Estatal, contara con un plazo de 120 días a partir de la entrada en vigor del presente decreto, para realizar las adecuaciones reglamentarias y presupuestarias para la asignación de los recursos que se dispongan en el presupuesto de egresos para lograr la consecución de dicho fin.
+TERCERO. La Secretaría de Salud Jalisco, deberá expedir los lineamientos para constituir, operar y actualizar el Registro Estatal de Enfermedades No Transmisibles, a más tardar de noventa días contados a partir de la entrada en vigencia del presente decreto.
