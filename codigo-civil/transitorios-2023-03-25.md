@@ -1,0 +1,3 @@
+P.O. 25 DE MARZO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO 29165/LXIII/23 QUE REFORMA LOS ARTÍCULOS 572, 1931, 2236, 2634 Y 2957 DEL CÓDIGO CIVIL Y EL ARTÍCULO 84 DE LA LEY DEL NOTARIADO, AMBOS ORDENAMIENTOS DEL ESTADO DE JALISCO".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
