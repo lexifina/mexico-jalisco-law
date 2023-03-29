@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 28 DE MARZO DE 2023)
+Artículo 357 Ter. La infraestructura pasiva de telecomunicaciones y radiodifusión, bajo responsabilidad de sus propietarios deberá mantenerse en buen estado físico, asegurando cumplir con las medidas de seguridad para la protección a las personas y sus bienes.
+Los propietarios de infraestructura pasiva de telecomunicaciones y radiodifusión, bajo responsabilidad, tienen la obligación de retirarla cuando ésta se encuentre en desuso, deteriorada o cuando sea peligrosa, conforme lo determine el dictamen de la autoridad municipal.
+Cuando los propietarios de la infraestructura pasiva de telecomunicaciones y radiodifusión, sean omisos en dar cumplimiento en lo dispuesto en los párrafos que anteceden y dicha omisión produzca un daño en las personas o sus bienes, estos serán responsables subjetivamente de las consecuencias jurídicas y administrativas a que diera lugar.
+Las autoridades municipales sancionarán el incumplimiento de este precepto, en los términos de este Código y de las disposiciones reglamentarias aplicables.

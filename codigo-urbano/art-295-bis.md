@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MARZO DE 2023)
+Artículo 295 Bis. Las personas físicas o jurídicas que pretendan obtener autorizaciones, licencias o permisos municipales para la ejecución de obras civiles que tengan por objeto o impliquen la construcción o instalación de infraestructura para telecomunicaciones y radiodifusión, deberán cumplir con la normatividad municipal en materia de imagen urbana, protección civil y medio ambiente para su instalación.
