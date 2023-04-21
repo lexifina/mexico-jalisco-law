@@ -1,0 +1,8 @@
+P.O. 20 DE ABRIL DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO 29175/LXIII/23 QUE REFORMA LOS ARTÍCULOS 40, 41, 42, 45, 46, 47, 48 Y 49 Y SE MODIFICA LA DENOMINACIÓN DE LOS CAPÍTULOS VI Y VIII QUE LOS CONTIENEN, PARA TITULARSE "DE LA EDUCACIÓN INDÍGENA, INTERCULTURAL Y BILINGÜE", "DE LA EDUCACIÓN INCLUSIVA Y ESPECIAL" RESPECTIVAMENTE, AMBOS DEL TÍTULO SEGUNDO DE LA LEY DE EDUCACIÓN DEL ESTADO LIBRE Y SOBERANO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. El titular del Poder Ejecutivo hará las adecuaciones necesarias a los Reglamentos de la presente ley, en un plazo no mayor de ciento ochenta días siguientes a la fecha de la entrada en vigor del presente decreto.
+TERCERO. La Secretaría de Educación emitirá en un plazo no mayor de ciento ochenta días, los manuales y programas para las adecuaciones curriculares para la educación inclusiva e indígena intercultural y bilingüe conforme al presente decreto.
+CUARTO. En la medida de lo posible el Poder Ejecutivo y la Secretaría de Educación deberán incorporar en el profesiograma a los licenciados de educación inclusiva o especial y maestros sordos, interpretes educativos y maestros bilingües.
+QUINTO. Se autoriza a la Secretaria de la Hacienda Pública a realizar las adecuaciones presupuestales en el Presupuesto de Egresos del ejercicio fiscal 2023 a efecto de dar cumplimiento al presente decreto.
+SEXTO. La Secretaría de Educación, conforme a la suficiencia presupuestal asignada, instrumentará progresivamente las acciones establecidas en el presente decreto.
