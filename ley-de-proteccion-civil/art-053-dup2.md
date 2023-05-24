@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 10 DE AGOSTO DE 2019)
-Artículo 53 Cuarter. (sic) La Unidad Estatal de Protección Civil, se encargará de organizar el funcionamiento de esta Red; para tal efecto, las autoridades Estatales y Municipales en la materia, promoverán en el marco de su competencia, la capacitación y certificación de los grupos de voluntarios que deseen constituirse en brigadas comunitarias, debiendo registrar los grupos que se conformen en el estado de Jalisco e informar de ellos a la Red Nacional.

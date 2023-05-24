@@ -1,1 +1,0 @@
-Artículo 52 Bis.- (DEROGADO, P.O. 3 DE OCTUBRE DE 2006)
