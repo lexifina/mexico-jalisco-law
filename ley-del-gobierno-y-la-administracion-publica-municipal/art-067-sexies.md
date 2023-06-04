@@ -1,13 +1,13 @@
-(ADICIONADO, P.O. 6 DE AGOSTO DE 2020)
+(REFORMADO PRIMER PÁRRAFO, P.O. 3 DE JUNIO DE 2023)
 Artículo 67 sexies.
-El Órgano Interno de Control, se conforma orgánicamente de la siguiente manera:
-I. La persona titular del Órgano Interno de Control;
-II. La Secretaría Técnica;
-III. Área de Auditoría;
-IV. Área de Investigación;
-V. Área de Responsabilidades; y
-VI. Las demás áreas necesarias para el cumplimiento de sus funciones.
-Para el estudio y despacho de los asuntos de su competencia, el Órgano Interno de Control, se auxiliará de las áreas y dependencias señaladas en el presente ordenamiento y contará con el personal que se requiera para el cumplimiento de las funciones a su cargo, atendiendo a su disponibilidad presupuestal aprobada.
+El Órgano Interno de Control se conformará acorde a lo señalado por el artículo 53 de la Ley de Responsabilidades Políticas y Administrativas del Estado de Jalisco.
+I. (DEROGADA, P.O. 3 DE JUNIO DE 2023)
+II. (DEROGADA, P.O. 3 DE JUNIO DE 2023)
+III. (DEROGADA, P.O. 3 DE JUNIO DE 2023)
+IV. (DEROGADA, P.O. 3 DE JUNIO DE 2023)
+V. (DEROGADA, P.O. 3 DE JUNIO DE 2023)
+VI. (DEROGADA, P.O. 3 DE JUNIO DE 2023)
+(DEROGADO ÚLTIMO PÁRRAFO, P.O. 3 DE JUNIO DE 2023)
 TITULO CUARTO
 PREVENCIONES PARA LOS CASOS DE AUSENCIA DE LAS AUTORIDADES MUNICIPALES
 CAPITULO UNICO
