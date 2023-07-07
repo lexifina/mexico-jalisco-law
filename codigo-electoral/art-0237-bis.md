@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2023)
+Artículo 237 Bis
+1. En el caso de la postulación de candidaturas a la Gubernatura del Estado, los partidos políticos nacionales, en ejercicio de su autodeterminación, garantizarán que se observe el principio de paridad, en los términos que establezca la autoridad competente. En el caso de los partidos políticos locales deberán de observar la postulación alternada entre los géneros.
