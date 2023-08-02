@@ -1,0 +1,12 @@
+Artículo 357-F. Registro de vehículos.
+1. Los registros, se otorgarán a personas físicas o jurídicas propietarias del vehículo que se pretenda destinar al Servicios de Transporte Privado de Punto a Punto, cuya vigencia no será mayor a un año, para lo cual deberán acreditar lo siguiente:
+I. El pago de los derechos correspondientes;
+II. Contar con una póliza o constancia de seguro de cobertura amplia, debiendo presentar para esos efectos, la póliza o constancia vigente y el recibo de pago correspondiente;
+III. Que el vehículo cumpla con los requisitos previstos en esta Ley y su Reglamento;
+IV. Que el vehículo se encuentre libre de adeudos ante la Secretaría de la Hacienda Pública;
+V. Acreditar haber cumplido con el programa de verificación vehicular que emita la Secretaría de Medio Ambiente y Desarrollo Territorial de acuerdo con el calendario oficial de verificación vigente en el Estado;
+VI. Cumplir con las condiciones mecánicas y de seguridad previstas en las disposiciones reglamentarias aplicables; y
+VII. Tratándose del primer registro, el modelo del vehículo a través del cual se pretenda prestar el Servicios de Transporte Privado de Punto a Punto, no podrá ser mayor a 4 años de antigüedad.
+2. Sin perjuicio de los requisitos que establezca la presente Ley, su reglamento y demás disposiciones aplicables en la materia, el otorgamiento de la renovación del registro a que se refiere éste artículo estará condicionado al cumplimiento de disposiciones relativas al programa de verificación vehicular.
+3. Para garantizar la seguridad de las personas usuarias del Servicio de Transporte Privado de Punto a Punto y las demás personas usuarias del Sistema de Movilidad, el vehículo registrado no podrá continuar prestando el servicio, y por tanto quedará sin efectos el registro respectivo otorgado por la Secretaría cuando el modelo de la unidad exceda de 10 años de antigüedad tratándose de vehículos que utilicen gasolina, diesel o gas natural comprimido, o tratándose de vehículos híbridos no podrá exceder de 12 años y en caso de los vehículos eléctricos no podrá exceder de 15 años.
+4. Cuando se realice el trámite vía electrónica, los documentos que se presenten para acreditar el cumplimiento de los anteriores requisitos, estarán sujetos a revisión y comprobación por parte de la autoridad competente; por lo que podrán ser requeridos por la Secretaría durante la vigencia del mismo, para presentar documentos de manera física a efecto de comprobar su autenticidad.
