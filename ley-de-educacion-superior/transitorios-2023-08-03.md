@@ -1,0 +1,4 @@
+P.O. 3 DE AGOSTO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO 29224/LXIII/23 DEL CONGRESO DEL ESTADO QUE REFORMA LAS FRACCIONES XIII Y XIV Y SE RECORRE EN EL ORDEN LA SUBSECUENTE DEL ARTÍCULO 38; QUE REFORMAN LOS INCISOS B) Y C) DE LA FRACCIÓN II DEL ARTÍCULO 44 DE LA LEY DE EDUCACIÓN SUPERIOR DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. Las personas titulares del Poder Ejecutivo y de la Secretaría de Innovación, Ciencia y Tecnología del Estado de Jalisco, emitirán y adecuarán los reglamentos, acuerdos, lineamientos y demás disposiciones de carácter general conforme a lo establecido en el presente decreto, en un plazo no mayor a ciento ochenta días hábiles contados a partir de la entrada en vigor del presente decreto.

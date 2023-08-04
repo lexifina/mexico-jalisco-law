@@ -4,6 +4,3 @@ I. La identificación visual plena de los Consejeros, aunque deberá privilegiar
 II. La interacción e intercomunicación, en tiempo real, para propiciar la correcta deliberación de la ideas y asuntos; y
 III. Dejar registro audiovisual de la sesión y sus acuerdos.
 En los casos mencionados en el párrafo anterior, la convocatoria, celebración de las sesiones a distancia y redacción y formalización de las correspondientes actas y acuerdos, se sujetarán a las disposiciones reglamentarias.
-(REUBICADA, P.O. 13 DE FEBRERO DE 2001)
-Sección Quinta
-De las facultades y obligaciones de los consejeros ciudadanos.
