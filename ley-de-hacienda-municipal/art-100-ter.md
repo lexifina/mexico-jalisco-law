@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2023)
+Art. 100-Ter. El municipio podrá otorgar un beneficio fiscal hasta del 25% consistente en la aplicación de un descuento sobre el impuesto predial a los contribuyentes propietarios de bienes inmuebles que implementen, y acrediten mediante constancia expedida por la dependencia municipal correspondiente, por la instalación de un sistema de captación de agua pluvial, o la instalación de un sistema fotovoltaico que garantice una disminución de al menos un 50% en el consumo de energía eléctrica.
