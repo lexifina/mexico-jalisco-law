@@ -1,0 +1,9 @@
+(ADICIONADO, P.O. 12 DE DICIEMBRE DE 2023)
+Artículo 225 bis. De la infraestructura de los establecimientos.
+Los establecimientos a que se refiere el punto 2 del artículo 226 contarán con un responsable sanitario, de quien deberán dar aviso a la autoridad sanitaria que corresponda.
+Los establecimientos en los que se extraigan órganos, tejidos y células, deberán de contar con un Comité Interno de Coordinación para la donación de órganos y tejidos, que será presidido por su Director General o su inmediato inferior que sea médico con un alto nivel de conocimientos académicos y profesionales en la materia.
+Este comité será responsable de que el establecimiento de salud cuente con un programa de trasplante autorizado y será responsable de hacer la selección de disponentes y receptores para trasplante, de conformidad con lo que establece la presente Ley, la Ley General de Salud y su reglamento y las Normas Oficiales Mexicanas de la materia y demás disposiciones jurídicas aplicables.
+El Comité Interno de Trasplantes deberá coordinarse con el comité de bioética de la institución en los asuntos de su competencia, a que se refiere el artículo 316 de la Ley General de Salud.
+Los establecimientos que realicen actos de disposición de sangre, componentes sanguíneos y células progenitoras hematopoyéticas, deberán contar con un Comité de Medicina Transfusional, el cual se sujetará a las disposiciones que para tal efecto emita la Secretaría de Salud.
+En caso de que el establecimiento cuente con la autorización sanitaria para hacer trasplante de órganos y tejidos a que se refiere el artículo 315, fracción I de Ley General de Salud, se deberá conformar un subcomité y este deberá presentar los casos al Comité Interno de Trasplantes.
+Los comités y subcomités a que se refiere este artículo se integrarán y sujetarán a las disposiciones que para tal efecto emita la Secretaría de salud federal y demás disposiciones reglamentarias.
