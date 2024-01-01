@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE OCTUBRE DE 2023)
+Artículo 129 Bis. El procedimiento administrativo de ejecución previsto en este Título respecto de los adeudos generados por la prestación del servicio de guarda y custodia de vehículos, mercancía u objetos varios, que se encuentren en los depósitos vehiculares a cargo de la Secretaría de Administración, será desahogado por ésta a través de la Dirección General de Deposito y Custodia Vehicular.
