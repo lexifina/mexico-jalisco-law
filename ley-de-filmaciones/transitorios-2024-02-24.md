@@ -1,0 +1,5 @@
+P.O. 24 DE FEBRERO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO 29522/LXIII/24 DEL CONGRESO DEL ESTADO MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 5, 11, 12 EL TÍTULO TERCERO Y LOS ARTÍCULOS 14, 15, 16 Y 17 DE LA LEY DE FILMACIONES DEL ESTADO DE JALISCO Y REFORMA LOS ARTÍCULOS 2, 5, 10 Y ADICIONA LA SECCIÓN II BIS CON LOS ARTÍCULOS 12 BIS, 12 TER, 12 QUÁTER Y 12 QUINQUIES DE LA LEY ORGÁNICA DE LA AGENCIA ESTATAL DE ENTRETENIMIENTO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. El Poder Ejecutivo en un plazo de sesenta días hábiles deberá realizar las modificaciones reglamentarias y administrativas necesarias para cumplimentar el presente decreto.
+TERCERO. La Secretaría de la Hacienda Pública deberá contemplar la asignación presupuestal necesaria en la Agencia Estatal de Entretenimiento de Jalisco, para la conformación del Fondo Filma Jalisco para el ejercicio fiscal 2024, con base en las disposiciones previstas en el presente decreto y en apego a las disposiciones aplicables.

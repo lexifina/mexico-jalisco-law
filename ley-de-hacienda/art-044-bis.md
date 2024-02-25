@@ -7,5 +7,6 @@ IV. El monto a acreditarse no podrá exceder del 20% del impuesto anual sobre n�
 V. El contribuyente que otorgue el apoyo solo podrá obtener reconocimiento por el mismo, pero no podrá obtener contraprestaciones económicas directas.
 Los estímulos previstos en este artículo podrán aplicarse a los procesos de creación de obras artísticas a que se refiere la Ley Federal del Derecho de Autor y los que señale la Ley de Mecenazgo Cultural del Estado de Jalisco.
 Los apoyos serán inembargables, podrán proporcionarse en dinero o en especie y el contribuyente deberá entregarlo por conducto de la Secretaría de Cultura del Estado de Jalisco conforme a las reglas de operación que este organismo expida.
-La Secretaría de la Hacienda Pública, en el ejercicio de sus facultades, verificará el correcto uso del estímulo fiscal.
+(REFORMADO, P.O. 24 DE FEBRERO DE 2024)
+El Servicio Estatal Tributario de Jalisco, en el ejercicio de sus facultades, verificará el correcto uso del estímulo fiscal.
 De la estimación de erogaciones

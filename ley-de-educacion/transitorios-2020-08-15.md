@@ -1,3 +1,0 @@
-P.O. 15 DE AGOSTO DE 2020.
-[N. DE E. TRANSITORIO DEL "DECRETO 27942/LXII/20 QUE REFORMAN LOS ARTICULOS OCTAVO Y NOVENO TRANSITORIOS DE LA LEY DE EDUCACIÓN DEL ESTADO LIBRE Y SOBERANO DE JALISCO"]
-ARTÍCULO ÚNICO. El presente decreto entrará en vigor el mismo día de su publicación en el periódico oficial "El Estado de Jalisco".

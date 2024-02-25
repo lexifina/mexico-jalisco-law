@@ -1,4 +1,0 @@
-P.O. 5 DE NOVIEMBRE DE 2022.
-[N. DE E. TRANSITORIOS DEL "DECRETO 28856/LXIII/22 DEL CONGRESO DEL ESTADO, QUE MODIFICA LA FRACCIÓN XIV; SE ADICIONA LA FRACCIÓN XV RECORRIENDO LA SUBSECUENTE PARA QUEDAR COMO XVI AL ARTÍCULO 34; SE REFORMA EL ARTÍCULO 113; SE ADICIONA EL CAPÍTULO IV BIS Y EL ARTÍCULO 53 BIS DE LA LEY DE SALUD DEL ESTADO DE JALISCO Y SE REFORMA EL ARTÍCULO 60 DE LA LEY DE EDUCACIÓN DEL ESTADO LIBRE Y SOBERANO DE JALISCO".]
-PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
-SEGUNDO. Con la finalidad de diagnosticar y tratar de manera oportuna e integral a las personas con debilidad visual, la Secretaría de Salud de Jalisco deberá crear un programa coordinado con la Secretaría de Educación Pública de Jalisco, de conformidad con su viabilidad presupuestal.

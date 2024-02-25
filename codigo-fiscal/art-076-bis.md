@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 1 DE FEBRERO DE 2019)
-Artículo 76 Bis.- La Secretaría de la Hacienda Pública estará obligada a devolver las cantidades que hubiesen sido depositadas para garantizar las resultas de un juicio, cuando el Tribunal respectivo ordene expresamente la devolución de las cantidades, por no ser necesaria la fianza.
+(REFORMADO PRIMER PÁRRAFO, P.O. 24 DE FEBRERO DE 2024)
+Artículo 76 Bis. Las autoridades fiscales estarán obligadas a devolver las cantidades que hubiesen sido depositadas para garantizar las resultas de un juicio, cuando el Tribunal respectivo ordene expresamente la devolución de las cantidades, por no ser necesaria la fianza.
 (ADICIONADO, P.O. 4 DE NOVIEMBRE DE 2017)
 La devolución de las cantidades a que se refiere el párrafo anterior deberá realizarse en un plazo máximo de diez días hábiles.
 (ADICIONADO, P.O. 4 DE NOVIEMBRE DE 2017)

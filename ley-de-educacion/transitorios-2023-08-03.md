@@ -1,4 +1,0 @@
-P.O. 3 DE AGOSTO DE 2023.
-[N. DE E. TRANSITORIOS DEL "DECRETO 29222/LXIII/23 DEL CONGRESO DEL ESTADO QUE REFORMA EL ARTÍCULO 83, Y EL ÚLTIMO PÁRRAFO DEL ARTÍCULO 90, Y ADICIONA LA FRACCIÓN X, AL ARTÍCULO 82, DE LA LEY DE EDUCACIÓN DEL ESTADO LIBRE Y SOBERANO DE JALISCO; REFORMA LAS FRACCIONES I A LA XV, DEL ARTÍCULO 5, Y EL INCISO C), DE LA FRACCIÓN III, DEL ARTÍCULO 19, Y ADICIONA LA FRACCIÓN XVI, AL ARTÍCULO 5, Y EL INCISO D), A LA FRACCIÓN III, DEL ARTÍCULO 19, DE LA LEY DE CULTURA DE PAZ DEL ESTADO DE JALISCO".]
-PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
-SEGUNDO. La Secretaría de Educación, conforme a la suficiencia presupuestal asignada, instrumentará las acciones establecidas en la presente Ley.
