@@ -1,0 +1,4 @@
+P.O. 9 DE MARZO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO 29523/LXIII/24 DEL CONGRESO DEL ESTADO MEDIANTE EL CUAL REFORMAN LOS ARTÍCULOS 10 Y 25; Y ADICIONA EL ARTÍCULO 34 BIS JUNTO CON LA SECCIÓN DÉCIMA BIS "LA SECRETARÍA DE DESARROLLO ECONÓMICO", DENTRO DEL CAPÍTULO III, DEL TÍTULO SEGUNDO DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE JALISCO, EN MATERIA DE VIOLENCIA ECONÓMICA".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. Se autoriza a la Secretaría de la Hacienda Pública para que, en coordinación con la Secretaría de Igualdad Sustantiva entre Mujeres y Hombres, la Secretaría del Trabajo y Previsión Social y la Secretaría de Desarrollo Económico, actualicen la estructura programática a efecto de incorporar los fines del presente decreto e incluir las partidas presupuestarias para el siguiente ejercicio fiscal.
