@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE ABRIL DE 2024)
+Artículo 50-Sexies.- De conformidad a las disposiciones de sanidad animal aplicables a la mercancía regulada, se verificará e inspeccionara la movilización del ganado bovino, provenientes de otras entidades y en las diferentes regiones del Estado, para cuidar la conservación del estatus zoosanitario y su posicionamiento como zonas libres de enfermedades, lo que permite la comercialización y movilización hacia otros Estados o el extranjero; con base en el protocolo que para tal efecto emita la Agencia.
