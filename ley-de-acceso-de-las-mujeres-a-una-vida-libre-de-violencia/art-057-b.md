@@ -10,9 +10,11 @@ V. Acceso al domicilio en común, de autoridades policiacas o de personas que au
 VI. Establecer el derecho de visitas o convivencia asistida o supervisada por la autoridad competente en materia de familia, niñas, niños y adolescentes. En caso de que la autoridad jurisdiccional lo estime necesario la suspensión o restricción temporal al agresor a las visitas y convivencia con sus descendientes en los términos de la legislación civil;
 (REFORMADA, P.O. 19 DE SEPTIEMBRE DE 2020)
 VII. La persona agresora deberá asistir a tratamientos psicológicos, reeducativos, integrales, especializados y gratuitos que serán impartidos por instituciones públicas y privadas debidamente acreditada (sic),
-(REFORMADA [N. DE E. ADICIONADA], P.O. 19 DE SEPTIEMBRE DE 2020)
-VIII. Restringir y bloquear de internet o de redes sociales, las cuentas del agresor cuando se determine que persiste el riesgo para la víctima; y
-(REFORMADA, P.O. 19 DE SEPTIEMBRE DE 2020)
-IX. Auxilio inmediato por integrantes de instituciones policiales, al domicilio en donde se localice o se encuentre la víctima u ofendido en el momento de solicitarlo.
-(REFORMADO [N. DE E. REPUBLICADO], P.O. 19 DE SEPTIEMBRE DE 2020)
+(REFORMADA, P.O. 25 DE JUNIO DE 2024)
+VIII. Restringir y bloquear de internet o de redes sociales, las cuentas del agresor cuando se determine que persiste el riesgo de la víctima;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 25 DE JUNIO DE 2024)
+IX. Solicitar a la autoridad judicial competente la recuperación y entrega inmediata a las mujeres víctimas de sus hijas e/o hijos menores de 18 años y/o personas incapaces que requieran cuidados especiales, que hayan sido sustraídos, retenidos y ocultados de la madre, en términos de lo establecido en el artículo 10, fracción VII de la presente ley; y
+(REFORMADA [N. DE E. REUBICADA], P.O. 25 DE JUNIO DE 2024)
+X. Auxilio inmediato por integrantes de instituciones policiales, al domicilio en donde se localice o se encuentre la víctima u ofendido en el momento de solicitarlo.
+(REFORMADO [N. DE E. REPUBLICADO], P.O. 25 DE JUNIO DE 2024)
 La autoridad responsable, bajo su más estricta responsabilidad, ordenará fundada y motivadamente la aplicación de las órdenes de protección idóneas cuando estime riesgo inminente en contra de la seguridad de la mujer víctima de violencia.
