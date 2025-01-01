@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CÓDIGO DE ASISTENCIA SOCIAL DEL ESTADO DE JALISCO
 Código publicado en la Edición Especial del Periódico Oficial del Estado de Jalisco, el viernes 1 de febrero de 2019.
 Al margen un sello que dice: Estados Unidos Mexicanos. Gobierno del Estado de Jalisco. Poder Ejecutivo. Secretaría General de Gobierno.

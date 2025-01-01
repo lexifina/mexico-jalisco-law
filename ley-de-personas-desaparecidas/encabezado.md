@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE PERSONAS DESAPARECIDAS DEL ESTADO DE JALISCO
 Ley publicada en la Edición Especial al Número 26 Ter del Periódico Oficial del Estado de Jalisco, el viernes 5 de marzo de 2021.
 Al margen un sello que dice: Estados Unidos Mexicanos. Gobierno del Estado de Jalisco. Poder Ejecutivo. Secretaría General de Gobierno.
