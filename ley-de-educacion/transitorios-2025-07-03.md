@@ -1,0 +1,4 @@
+P.O. 3 DE JULIO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 29844/LXIV/25 DEL CONGRESO DEL ESTADO QUE REFORMA LOS ARTÍCULOS 11, PRIMER PÁRRAFO Y FRACCIÓN V, 14, PRIMER PÁRRAFO Y FRACCIÓN V, Y 15 FRACCIÓN III DE LA LEY DE EDUCACIÓN DEL ESTADO LIBRE Y SOBERANO DE JALISCO; ASÍ COMO LOS ARTÍCULOS 9, NUMERAL 1, FRACCIÓN VII, 10, NUMERAL 1, FRACCIÓN XII, 11, NUMERAL 1, FRACCIÓN V, Y 40 DE LA LEY DE EDUCACIÓN SUPERIOR DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. La Secretaría de Educación del Estado de Jalisco y la Secretaría de Innovación, Ciencia y Tecnología del Estado de Jalisco, deberán realizar las acciones que consideren necesarias para llevar a cabo lo establecido en el presente decreto.
