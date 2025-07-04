@@ -1,0 +1,5 @@
+P.O. 3 DE JULIO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 29847/LXIV/25 DEL CONGRESO DEL ESTADO, QUE REFORMA LAS FRACCIONES XX Y XXI Y ADICIONA LA FRACCIÓN XXII AL ARTÍCULO 37 DE LA LEY DEL GOBIERNO Y LA ADMINISTRACIÓN PÚBLICA MUNICIPAL DEL ESTADO DE JALISCO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. Para el debido cumplimiento de este Decreto, los Ayuntamientos deberán aplicar el principio de paridad de forma progresiva y gradual a partir de las nuevas designaciones y nombramientos que correspondan de conformidad con las disposiciones jurídicas aplicables, teniendo las calidades que establezca la ley a quiénes tomen posesión de su encargo, en términos de las atribuciones y obligaciones necesarias para garantizar los derechos derivados del presente Decreto.
+TERCERO. La entrada en vigor del presente decreto no menoscabará o afectará la estabilidad laboral y demás condiciones de trabajo y respetará los derechos laborales adquiridos de los servidores públicos.
