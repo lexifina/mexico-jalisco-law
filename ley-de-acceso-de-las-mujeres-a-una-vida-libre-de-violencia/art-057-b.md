@@ -1,8 +1,12 @@
-(ADICIONADO, P.O. 1 DE DICIEMBRE DE 2015)
+(REFORMADO PRIMER PÁRRAFO [N. DE E. REPUBLICADO ESTE PÁRRAFO], P.O. 16 DE OCTUBRE DE 2025)
 Artículo 57 B. Son órdenes de protección preventivas las siguientes:
+(ADICIONADA, P.O. 1 DE DICIEMBRE DE 2015)
 I. Retención y guarda de armas de fuego propiedad del agresor o de alguna institución de seguridad pública o privada, independientemente si las mismas se encuentran registradas o bajo resguardo conforme a la normatividad de la materia, así como las armas punzocortantes y punzocontundentes, independientemente de su uso, hayan sido empleadas o no para amenazar o lesionar a la víctima;
-II. Prohibición de la persona agresora de enajenar o hipotecar bienes de su propiedad cuando se trate del domicilio común previo inventario de los bienes muebles e inmuebles de propiedad común, incluyendo los implementos de trabajo de la víctima;
+(REFORMADA, P.O. 16 DE OCTUBRE DE 2025)
+II. Elaboración de inventario de todos y cada uno de los bienes muebles e inmuebles que se pretendan asegurar, tanto de la persona agresora, como de la víctima, con la finalidad de garantizar que no sean arrendados, enajenados o gravados en perjuicio de la víctima, hasta en tanto se dicte resolución ejecutoriada al caso de violencia de que se trate. Para tal efecto se notificará a las autoridades competentes para que realicen los aseguramientos correspondientes y quede de manifiesto las inscripciones necesarias.
+(ADICIONADA, P.O. 1 DE DICIEMBRE DE 2015)
 III. Embargo preventivo de bienes del agresor, que deberá inscribirse con carácter temporal en el Registro Público de la Propiedad, a efecto de garantizar las obligaciones alimentarias;
+(ADICIONADA, P.O. 1 DE DICIEMBRE DE 2015)
 IV. Uso y goce de bienes muebles que se encuentren en el inmueble que sirva de domicilio de la víctima;
 (REFORMADA, P.O. 17 DE NOVIEMBRE DE 2018)
 V. Acceso al domicilio en común, de autoridades policiacas o de personas que auxilien a la víctima a tomar sus pertenencias personales y las de sus hijos;
@@ -16,5 +20,5 @@ VIII. Restringir y bloquear de internet o de redes sociales, las cuentas del agr
 IX. Solicitar a la autoridad judicial competente la recuperación y entrega inmediata a las mujeres víctimas de sus hijas e/o hijos menores de 18 años y/o personas incapaces que requieran cuidados especiales, que hayan sido sustraídos, retenidos y ocultados de la madre, en términos de lo establecido en el artículo 10, fracción VII de la presente ley; y
 (REFORMADA [N. DE E. REUBICADA], P.O. 25 DE JUNIO DE 2024)
 X. Auxilio inmediato por integrantes de instituciones policiales, al domicilio en donde se localice o se encuentre la víctima u ofendido en el momento de solicitarlo.
-(REFORMADO [N. DE E. REPUBLICADO], P.O. 25 DE JUNIO DE 2024)
-La autoridad responsable, bajo su más estricta responsabilidad, ordenará fundada y motivadamente la aplicación de las órdenes de protección idóneas cuando estime riesgo inminente en contra de la seguridad de la mujer víctima de violencia.
+(REFORMADO, P.O. 16 DE OCTUBRE DE 2025)
+La autoridad responsable, bajo su más estricta responsabilidad, ordenará fundada y motivadamente la aplicación de las órdenes de protección idóneas cuando estime riesgo inminente en contra de la seguridad o integridad de la mujer víctima de violencia.

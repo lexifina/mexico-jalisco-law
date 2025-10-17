@@ -7,6 +7,7 @@ Art. 107 Ter. El Sistema Anticorrupción del Estado de Jalisco es la instancia d
 El Sistema Anticorrupción del Estado de Jalisco tiene por objeto prevenir la corrupción, con la finalidad de fortalecer el estado de derecho, la rendición de cuentas y la gobernanza para el desarrollo; así como establecer principios, bases generales, políticas públicas y procedimientos para la coordinación entre las autoridades estatales y municipales en la prevención, detección y sanción de faltas administrativas y hechos de corrupción, así como en la fiscalización y control de recursos públicos. Es una instancia cuya finalidad es establecer, articular y evaluar la política en la materia, para lo cual se regirá bajo los principios de imparcialidad, certeza, legalidad, objetividad, eficiencia, profesionalismo, honradez, independencia, transparencia y publicidad.
 (ADICIONADO, P.O. 26 DE NOVIEMBRE DE 2016)
 Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:
+(REFORMADO ESTE PÁRRAFO [N. DE E. REPUBLICADO], P.O. 16 DE OCTUBRE DE 2025)
 I. El Sistema Anticorrupción del Estado de Jalisco contará con un Comité Coordinador que estará integrado de la siguiente manera:
 a) Titular de la Auditoría Superior;
 (REFORMADO, P.O. 18 DE JULIO DE 2017)
@@ -14,7 +15,7 @@ b) Titular de la Fiscalía Especializada en Combate a la Corrupción;
 c) Titular de la Contraloría del Estado;
 (REFORMADO, P.O. 18 DE JULIO DE 2017)
 d) Titular de la Presidencia del Tribunal de Justicia Administrativa;
-e) Titular de la Presidencia del Instituto de Transparencia, Información Pública y Protección de Datos Personales del Estado de Jalisco;
+e) (DEROGADO, P.O. 16 DE OCTUBRE DE 2025)
 f) Un representante del Consejo de la Judicatura; y
 g) Un representante del Comité de Participación Social.
 II. El Comité de Participación Social del Sistema Anticorrupción del Estado de Jalisco deberá integrarse por cinco ciudadanos que se hayan destacado por su contribución a la transparencia, rendición de cuentas o el combate a la corrupción y serán designados en los términos que establezca la Ley.
