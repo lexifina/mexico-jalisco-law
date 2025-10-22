@@ -1,0 +1,3 @@
+P.O. 21 DE OCTUBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO 29856/LXIV/25 DEL CONGRESO DEL ESTADO MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN XII DEL ARTÍCULO 7 Y EL ARTÍCULO 8 DE LA LEY DE VIVIENDA DEL ESTADO DE JALISCO".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".

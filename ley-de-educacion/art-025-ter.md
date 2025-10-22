@@ -1,0 +1,4 @@
+Artículo 25 Ter. La autoridad escolar que conozca sobre un caso de ausencia reiterada o deserción escolar tendrá la responsabilidad de documentar e informar a la Secretaría las causas que lo provocaron y las estrategias implementadas para evitar el abandono escolar, junto con sus resultados.
+La autoridad educativa estatal intervendrá a través de equipos multidisciplinarios, con la finalidad de brindar el apoyo asistencial necesario para que el alumno se reincorpore a clases, permanezca, continúe y concluya la educación básica, así como para imponer, en su caso, las medidas necesarias para la protección integral y restitución de sus derechos. Lo anterior en coordinación, en su caso, con la Secretaría del Sistema de Asistencia Social.
+La Procuraduría de Protección de Niñas, Niños y Adolescentes representará a los alumnos cuando los padres o tutores persistan en su exclusión del sistema escolar.
+Educación multigrado
