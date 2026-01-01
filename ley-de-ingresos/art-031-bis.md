@@ -1,0 +1,1 @@
+Artículo 31 Bis. Por la emisión de constancias de Registros de Generadores referidos en el artículo 42 Fracción I de la Ley de Gestión Integral de los Residuos del Estado de Jalisco, así como de Licencia Ambiental Única referidas en el artículo 73 de la Ley Estatal del Equilibrio Ecológico y la Protección al Ambiente:$321.00
