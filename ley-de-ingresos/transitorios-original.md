@@ -17,7 +17,9 @@ DÉCIMO SEGUNDO. Durante el ejercicio fiscal 2026 se autoriza al Poder Ejecutivo
 DÉCIMO TERCERO. Durante el ejercicio fiscal 2026, se otorgará a los contribuyentes un descuento (sic) 70% al Impuesto sobre la Adquisición de Vehículos Automotores Usados que resulte a pagar conforme a la tasa establecida en el artículo 11 de la Ley de Ingresos del Estado de Jalisco y de acuerdo a los elementos del impuesto establecido en el capítulo tercero de la Ley de Hacienda del Estado de Jalisco. El descuento mencionado del 70% aplicará también a los vehículos híbridos establecidos en el artículo 29 de la Ley de Hacienda del Estado de Jalisco.
 DÉCIMO CUARTO. Los flujos que se puedan obtener como ahorro derivado de las mejoras obtenidas por la reestructura y/o el refinanciamiento deberán ser a inversiones públicas productivas.
 [N. DE E. VÉASE ANEXO A EN EL P.O. DE 23 DE DICIEMBRE DE 2025, PÁGINAS DE LA 92 A LA 98.]
+(F. DE E., P.O. 17 DE ENERO DE 2026)
 [N. DE E. VÉASE ANEXO B EN EL P.O. DE 23 DE DICIEMBRE DE 2025, PÁGINAS DE LA 98 A LA 99.]
+(F. DE E., P.O. 17 DE ENERO DE 2026)
 [N. DE E. VÉASE ANEXO C EN EL P.O. DE 23 DE DICIEMBRE DE 2025, PÁGINAS DE LA 99 A LA 100.]
 [N. DE E. VÉASE ANEXO D EN EL P.O. DE 23 DE DICIEMBRE DE 2025, PÁGINAS DE LA 100 A LA 102.]
 [N. DE E. VÉASE ANEXO E EN EL P.O. DE 23 DE DICIEMBRE DE 2025, PÁGINAS DE LA 102 A LA 104.]
