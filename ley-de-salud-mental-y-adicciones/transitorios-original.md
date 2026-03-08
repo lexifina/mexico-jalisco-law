@@ -35,3 +35,4 @@ ALAIN FERNANDO PRECIADO LÓPEZ
 Subsecretario General de Gobierno
 (RÚBRICA)
 Encargado de despacho de la Secretaría General de Gobierno, de conformidad con el artículo 13 fracción X del Reglamento Interno de la Secretaría General de Gobierno
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
