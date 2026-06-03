@@ -24,6 +24,8 @@ X. Cuando el cuerpo de la víctima sea expuesto o arrojado en lugar público;
 XI. Cuando la víctima haya sido incomunicada, cualquiera que sea el tiempo previo a la privación de la vida; o
 (REFORMADA [N. DE E. ADICIONADA], P.O. 19 DE OCTUBRE DE 2022)
 XII. Cuando el sujeto activo actúe como prestador del servicio de transporte público o privado, cuente o no con autorización y registro correspondiente.
+(REFORMADO [N. DE E. ADICIONADO], P.O. 2 DE JUNIO DE 2026)
+La pena se agravará hasta en un tercio cuando la víctima sea mujer menor de edad, embarazada, o mujer con discapacidad.
 (REFORMADO [N. DE E. REPUBLICADO], P.O. 19 DE OCTUBRE DE 2022)
 En caso de que no se acredite el feminicidio se aplicarán las reglas del homicidio o parricidio, según corresponda.
 (REFORMADO [N. DE E. REPUBLICADO], P.O. 19 DE OCTUBRE DE 2022)
