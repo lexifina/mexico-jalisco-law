@@ -1,0 +1,4 @@
+P.O. 2 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 30170/LXIV/26 DEL CONGRESO DEL ESTADO QUE REFORMA EL ARTÍCULO 5 Y ADICIONA EL CAPÍTULO QUINTO BIS DE LA LEY DE PROTECCIÓN, CONSERVACIÓN Y FOMENTO DE ARBOLADO Y ÁREAS VERDES URBANAS DEL ESTADO DE JALISCO Y SUS MUNICIPIOS".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. Los municipios, realizarán las medidas que estimen necesarias a efecto de que la operación de las plantas de tratamiento de aguas residuales que administren, y que, al momento de la publicación del presente Decreto, se encuentren en funcionamiento, garantice las condiciones mínimas necesarias para la reutilización de agua tratada, en actividades relacionadas con el riego de áreas verdes.
