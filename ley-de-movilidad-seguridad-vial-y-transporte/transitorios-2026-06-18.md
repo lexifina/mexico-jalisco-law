@@ -1,0 +1,3 @@
+P.O. 18 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 30192/LXIV/26 DEL CONGRESO DEL ESTADO QUE REFORMA LOS ARTÍCULOS 31 Y 385 DE LA LEY DE MOVILIDAD, SEGURIDAD VIAL Y TRANSPORTE DEL ESTADO DE JALISCO".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
