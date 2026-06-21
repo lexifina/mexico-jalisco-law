@@ -9,4 +9,5 @@ II. Cuando se haya negado sin causa justificada, el recuento a que se refiere el
 I. Los incidentes de nuevo escrutinio y cómputo, no generarán la suspensión del asunto principal, por lo que se tramitarán por cuerda separada;
 II. El plazo para resolver los incidentes por ningún motivo deberá de exceder del tiempo con el que se cuenta para la resolución; por lo que se deberá atender a lo siguiente;
 III. Los plazos para la notificación, traslado, requerimientos, desahogo de éstos, citación o emisión de sentencias interlocutorias y otros actos procesales, que se consideren indispensables a fin de salvaguardar los derechos de los justiciables en el incidente de nuevo escrutinio y cómputo, deberán ser establecidos por el Pleno del Tribunal Electoral en el auto que admita a trámite el incidente, debiendo para ello tener en cuenta que no podrá rebasar el plazo de seis días con el que cuenta para resolverlo, fundando y motivando su actuación.
-5. Lo no regulado en esta ley en materia de incidentes, se estará a lo que establece el Código de Procedimientos Civiles para el Estado de Jalisco, y el reglamento interno del Tribunal.
+(REFORMADO, P.O. 18 DE JUNIO DE 2026)
+5. Lo no regulado en esta ley en materia de incidentes, se estará a lo que establece el Código Nacional de Procedimientos Civiles y Familiares; y el reglamento interno del Tribunal.
