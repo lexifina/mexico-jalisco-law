@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE AGOSTO DE 2026)
+Artículo 192 Ter. La oferta de los servicios que se haga a través de medios informativos, impresos, electrónicos u otros, por profesionistas que ejerzan cirugía plástica, estética y reconstructiva, así como los establecimientos o unidades médicas en que se practiquen dichas cirugías, deberán prever y contener con claridad en su publicidad los requisitos establecidos en los artículos 192 y 192 Bis.
