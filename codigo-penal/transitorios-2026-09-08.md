@@ -1,0 +1,4 @@
+P.O. 8 DE SEPTIEMBRE DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 30123/LXIV/25 DEL CONGRESO DEL ESTADO QUE REFORMA DIVERSAS DISPOSICIONES DEL ESTADO DE JALISCO DE CONFORMIDAD CON LA LEY GENERAL PARA PREVENIR, INVESTIGAR Y SANCIONAR LOS DELITOS EN MATERIA DE EXTORSIÓN, REGLAMENTARIA DE LA FRACCIÓN XXI DEL ARTÍCULO 73 DE LA CONSTITUCIÓN POLÍTICA DE LOS ESTADOS UNIDOS MEXICANOS".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".
+SEGUNDO. Los procedimientos penales en materia de extorsión previstos en los artículos derogados 189 y 189 Bis del Código Penal para el Estado Libre y Soberano de Jalisco, iniciados antes de la entrada en vigor del presente Decreto, seguirán tramitándose hasta su conclusión conforme a las disposiciones aplicables antes de la vigencia de este decreto.
