@@ -1,0 +1,11 @@
+{
+  "path": "mx-jal",
+  "code": "MX-JAL",
+  "name": "Jalisco",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-jalisco-law",
+  "build": "built: constitution, codes and laws (87 ordenamientos, 1598 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
